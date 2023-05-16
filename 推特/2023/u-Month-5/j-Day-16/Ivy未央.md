@@ -1,0 +1,1 @@
+北京时间2023-05-16T09:16:47Z<br>信中共的结局，只能说：活该 https://t.co/eaKrbq6pNy<br><img src='/temp/2023/1658280300005269506_0.jpg' width='250' height='250'><br>
