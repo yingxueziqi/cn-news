@@ -1,1 +1,4 @@
-北京时间2023-05-23T00:14:53Z<br>补充，目前墙内通稿是《俄方证实乌军攻入俄罗斯境内》 https://t.co/V0tqr2bHa4<br><img src='/temp/image/2023/u-Month-5/1660680639438372867_0.jpg' width='250' height='350'><br><br>
+北京时间2023-05-23T02:30:45Z<br>随后当晚，网友们又再次发起了新的“反对崇洋媚外”挑战 https://t.co/8eoXUENF0P<br><img src='/temp/image/2023/u-Month-5/1660714831526199296_0.jpg' width='250' height='350'><br><br>北京时间2023-05-23T02:29:30Z<br>网友投稿
+近日，抖音突然掀起一股“反对崇洋媚外”挑战，吸引了近百万用户参与。
+在评论区看，主要的讨论焦点在于中国女性跨国婚恋问题方面。
+23日凌晨，在人数即将达到100万人时，话题被封禁。 https://t.co/kEyZe0UApr<br><img src='/temp/image/2023/u-Month-5/1660714519889322007_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660714519889322007_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660714519889322007_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660714519889322007_3.jpg' width='250' height='350'><br><br>北京时间2023-05-23T00:14:53Z<br>补充，目前墙内通稿是《俄方证实乌军攻入俄罗斯境内》 https://t.co/V0tqr2bHa4<br><img src='/temp/image/2023/u-Month-5/1660680639438372867_0.jpg' width='250' height='350'><br><br>
