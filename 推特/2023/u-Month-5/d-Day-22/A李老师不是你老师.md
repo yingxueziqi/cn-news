@@ -1,4 +1,6 @@
-北京时间2023-05-22T20:34:29Z<br>网友投稿
+北京时间2023-05-22T20:38:21Z<br>网友投稿
+桂林电子科技大学发布通知，要求每门课都要加入“课程思政”的内容，即使是理工类专业课程也不例外。
+并且会向学生发调查问卷监督。 https://t.co/74TICbAKpp<br><img src='/temp/image/2023/u-Month-5/1660626148546473984_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660626148546473984_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660626148546473984_2.jpg' width='250' height='350'><br><br>北京时间2023-05-22T20:34:29Z<br>网友投稿
 浙江省台州学院学校老师要求毕业学生填写关于就业情况的调查问卷，并提供了“标准答案”。 https://t.co/Jxfj7M55b8<br><img src='/temp/image/2023/u-Month-5/1660625175547658243_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660625175547658243_1.jpg' width='250' height='350'><br><br>北京时间2023-05-22T20:32:19Z<br>后续，有微博网友发帖称，旗子被自己烧了。 https://t.co/krm8dA5RTh<br><img src='/temp/image/2023/u-Month-5/1660624631563276289_0.jpg' width='250' height='350'><br><br>北京时间2023-05-22T20:29:01Z<br>再掀“辱军”风波
 近日多个自媒体将矛头直指当代艺术家岳敏君，指责其作品存在“丑化亵渎解放军”“触犯《英烈法》”。 https://t.co/XaQR1N1TLD<br><img src='/temp/image/2023/u-Month-5/1660623798075371520_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660623798075371520_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660623798075371520_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1660623798075371520_3.jpg' width='250' height='350'><br><br>北京时间2023-05-22T18:30:38Z<br>网友投稿
 中山大学课堂教学“十不准” https://t.co/EOQgZJf6bl<br><img src='/temp/image/2023/u-Month-5/1660594009079701504_0.jpg' width='250' height='350'><br><br>北京时间2023-05-22T11:20:30Z<br>网友投稿
