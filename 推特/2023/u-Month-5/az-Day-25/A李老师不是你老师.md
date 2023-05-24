@@ -1,2 +1,5 @@
-北京时间2023-05-25T00:19:50Z<br>网友投稿
+北京时间2023-05-25T02:15:16Z<br>更正
+根据上海市公安局的公开文件，至少在2022年初上海就已经实行了对购买管制刀具进行封闭式柜台销售、购买人员实名登记的制度。
+因此是一则旧闻。 https://t.co/EJeNApQMmu<br><img src='/temp/image/2023/u-Month-5/1661435711390662658_0.jpg' width='250' height='350'><br><br>北京时间2023-05-25T01:04:28Z<br>网友投稿
+近日，国内各地网友发起“我为奶牛猫发声”活动，呼吁政府尽快推进动物保护法立法进程。 https://t.co/ujI3QRDgjS<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661417897112092672_0.jpg' width='250' height='350'><br><br>北京时间2023-05-25T00:19:50Z<br>网友投稿
 一名外卖员因为在游戏《王者荣耀》中和同局玩家倾诉，被其他玩家举报后遭到禁言和封号10年。 https://t.co/3kxdJQ3SAg<br><img src='/temp/image/2023/u-Month-5/1661406663272812545_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_3.jpg' width='250' height='350'><br><br>
