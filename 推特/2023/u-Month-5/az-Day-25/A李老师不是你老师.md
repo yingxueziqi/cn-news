@@ -1,0 +1,2 @@
+北京时间2023-05-25T00:19:50Z<br>网友投稿
+一名外卖员因为在游戏《王者荣耀》中和同局玩家倾诉，被其他玩家举报后遭到禁言和封号10年。 https://t.co/3kxdJQ3SAg<br><img src='/temp/image/2023/u-Month-5/1661406663272812545_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1661406663272812545_3.jpg' width='250' height='350'><br><br>
