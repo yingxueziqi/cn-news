@@ -1,3 +1,7 @@
-北京时间2023-05-25T13:02:07Z<br>香港与中国大陆热烈讨论跨境人体器官捐献互助机制之际，特区政府指控有人透过取消登记捐献来破坏系统，亲建制法律专家甚至扬言此为危害中国国家安全的“软对抗”。医疗慈善与国安是如何牵扯在一起的？ https://t.co/Hh1BJKZOPw<br><br><br>北京时间2023-05-25T11:52:20Z<br>被誉为美国骚灵与摇滚音乐巨星的歌手蒂娜·特纳（Tina Turner；天娜端纳）5月24日逝世，享寿83岁。前美国总统奥巴马（Barack Obama）等纷纷致哀。
+北京时间2023-05-25T16:13:30Z<br>佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）于5月24日正式宣布竞逐2024共和党总统候选人提名。德桑蒂斯在2022年以压倒性胜利连任州长后被视为党内的政治明星，成为同样角逐提名的川普的强劲对手。BBC 整理了关于德桑蒂斯的五件事、帮助观众了解他的政治取态。 https://t.co/qJ4bbuelPR<br><img src='/temp/video/2023/u-Month-5/az-Day-25/bbcchinese/1661646659112034305_0.jpg' width='250' height='350'><br><br>北京时间2023-05-25T15:01:07Z<br>澳大利亚新南威尔士州遭警员以电枪射击的95岁老人克莱尔·诺兰（Clare Nowland）在留医一周后，于5月24日傍晚不治去世。新州州长柯民思（Chris Minns）25日致哀。
+
+一名33岁的涉事警员24日被起诉伤人等罪，并已被停职。案件押后至7月5日再次提讯。
+
+@BBCNewsAsia 英文报道： https://t.co/BajyrDzuG6 https://t.co/GkdOo1EeGJ<br><img src='/temp/image/2023/u-Month-5/1661628445053317120_0.jpg' width='250' height='350'><br><br>北京时间2023-05-25T13:02:07Z<br>香港与中国大陆热烈讨论跨境人体器官捐献互助机制之际，特区政府指控有人透过取消登记捐献来破坏系统，亲建制法律专家甚至扬言此为危害中国国家安全的“软对抗”。医疗慈善与国安是如何牵扯在一起的？ https://t.co/Hh1BJKZOPw<br><br><br>北京时间2023-05-25T11:52:20Z<br>被誉为美国骚灵与摇滚音乐巨星的歌手蒂娜·特纳（Tina Turner；天娜端纳）5月24日逝世，享寿83岁。前美国总统奥巴马（Barack Obama）等纷纷致哀。
 
 蒂娜·特纳的名曲包括《What's Love Got to Do With It》、《The Best》等，其中《The… https://t.co/owX8rNkDJX https://t.co/nYr7Z9iDKA<br><img src='/temp/image/2023/u-Month-5/1661580936172142592_0.jpg' width='250' height='350'><br><br>
