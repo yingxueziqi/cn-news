@@ -1,4 +1,5 @@
-北京时间2023-05-27T14:16:19Z<br>目前进展
+北京时间2023-05-27T15:53:50Z<br>网友补充
+感觉现在的警民关系似乎越来越遥远了。 https://t.co/9TcStnihgT<br><img src='/temp/image/2023/u-Month-5/1662366486835478528_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_3.jpg' width='250' height='350'><br><br>北京时间2023-05-27T14:16:19Z<br>目前进展
 武警暂时撤离退后，民众进入清真寺并拆除了脚手架。 https://t.co/GWTgUHWIOa<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662341944377311234_0.jpg' width='250' height='350'><br><br>北京时间2023-05-27T13:56:40Z<br>网友投稿
 5月27日上午，云南省玉溪市通海县纳家营清真寺外，当地穆斯林与警察发生激烈冲突。
 网传冲突原因与政府打算强拆清真寺有关。 https://t.co/Dr34EI82Wm<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662336999838167040_0.jpg' width='250' height='350'><br><br>北京时间2023-05-27T13:46:29Z<br>网友投稿
