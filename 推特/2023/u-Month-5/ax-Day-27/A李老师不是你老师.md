@@ -1,4 +1,6 @@
-北京时间2023-05-27T15:53:50Z<br>网友补充
+北京时间2023-05-27T16:58:45Z<br>网友投稿
+近日，一则“奥迪车主怒怼交警”的视频走红网络，随后有网友通过车牌与相貌特征认为此人是哈尔滨副市长谭乐伟。后有媒体称该名男子只是一名工人，车辆为其父亲购买。
+然而，5月27日，有博主发帖称，一男子因在视频下评论“这是副市长吧”被哈尔滨南岗区奋斗路派出处以“寻衅滋事”为由拘留15日。… https://t.co/4wQWoXdv4J https://t.co/9D1Wyuv3dx<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662382823754399747_0.jpg' width='250' height='350'><br><br>北京时间2023-05-27T15:53:50Z<br>网友补充
 感觉现在的警民关系似乎越来越遥远了。 https://t.co/9TcStnihgT<br><img src='/temp/image/2023/u-Month-5/1662366486835478528_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662366486835478528_3.jpg' width='250' height='350'><br><br>北京时间2023-05-27T14:16:19Z<br>目前进展
 武警暂时撤离退后，民众进入清真寺并拆除了脚手架。 https://t.co/GWTgUHWIOa<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662341944377311234_0.jpg' width='250' height='350'><br><br>北京时间2023-05-27T13:56:40Z<br>网友投稿
 5月27日上午，云南省玉溪市通海县纳家营清真寺外，当地穆斯林与警察发生激烈冲突。
