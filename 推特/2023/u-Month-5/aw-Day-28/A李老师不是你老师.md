@@ -1,0 +1,3 @@
+北京时间2023-05-28T00:44:06Z<br>https://t.co/xk8OcUhs5K<br><img src='/temp/image/2023/u-Month-5/1662499931574132738_0.jpg' width='250' height='350'><br><br>北京时间2023-05-28T00:40:06Z<br>网友投稿
+5月26日，武汉财政局公开登报讨债。
+讨债对象包含下辖区财政局、科研单位、地方国企、上市公司子公司和少数民营企业等。 https://t.co/fOzqbufwba<br><img src='/temp/image/2023/u-Month-5/1662498926153420800_0.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662498926153420800_1.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662498926153420800_2.jpg' width='250' height='350'><img src='/temp/image/2023/u-Month-5/1662498926153420800_3.jpg' width='250' height='350'><br><br>
