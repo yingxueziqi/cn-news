@@ -1,0 +1,2 @@
+北京时间2023-05-29T00:19:38Z<br>【慎点】网友投稿
+5月28日，一名网友发贴称，自己的丈夫当着自己的面砍杀了自己的狗。 https://t.co/XKWKmUTiRF https://t.co/X55aEbJzuh<br><img src='/temp/image/2023/u-Month-5/1662856163640082435_0.jpg' width='250' height='350'><br><br>
