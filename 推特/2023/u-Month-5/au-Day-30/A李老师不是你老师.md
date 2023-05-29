@@ -1,0 +1,3 @@
+北京时间2023-05-30T00:06:36Z<br>补充阅读 https://t.co/lqGwr60TAv<br><img src='/temp/image/2023/u-Month-5/1663215271270645761_0.jpg' width='250' height='350'><br><br>北京时间2023-05-30T00:06:18Z<br>网友投稿
+5月29日，一名四川大学学生在国旗下发表演讲，号召大家勇敢和团结起来，不能放任在“我们地盘”上撒野的人，一定要让施暴者得到严惩。
+网传该名学生之后被校方带走。… https://t.co/EYZaUxBChP https://t.co/NC3OI6Vpmk<br><img src='/temp/video/2023/u-Month-5/au-Day-30/whyyoutouzhele/1663215196054093826_0.jpg' width='250' height='350'><br><br>
