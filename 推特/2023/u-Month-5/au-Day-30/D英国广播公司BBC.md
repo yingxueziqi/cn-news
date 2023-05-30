@@ -1,4 +1,10 @@
-北京时间2023-05-30T19:40:10Z<br>官方中国新华社报道，“神舟十六号”载人飞船经历约6.5小时飞行后，于5月30日北京时间16:29（08:29 GMT）与中国天宫空间站完成对接，“神十六”与“神十五”航天员在站内会合。
+北京时间2023-05-30T22:09:21Z<br>俄罗斯国防部5月30日宣称乌克兰在当天向莫斯科以无人机策动连环“恐怖袭击”，总统普京（Vladimir Putin）指控基辅“恫吓”俄国。
+
+这是俄罗斯入侵乌克兰一年多以来，俄国首都首次遇袭。俄方称有多架无人机在高级官员聚居的莫斯科西郊盘旋。市长索比亚宁（Sergei Sobyanin）称，袭击并未造成任何严重伤亡。… https://t.co/oT5h21VehE https://t.co/BmKjO8cKAi<br><img src='/temp/image/2023/u-Month-5/1663548154594328582_0.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663548154594328582_1.jpg' width='270' height='370'><br><br>北京时间2023-05-30T21:09:04Z<br>中国外交部公布，外长秦刚5月30日在北京会晤美国企业家马斯克（Elon Musk），并简介了双方谈话内容。
+
+拥有电动车品牌特斯拉（Tesla）、网络社交平台推特（Twitter）与航天企业SpaceX的马斯克事前并未张扬这次访华行程。
+
+截至发稿时，马斯克一方并未就会面发表任何评论。 https://t.co/Xh7qL2OZf5<br><img src='/temp/image/2023/u-Month-5/1663532980516831233_0.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663532980516831233_1.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663532980516831233_2.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663532980516831233_3.jpg' width='270' height='370'><br><br>北京时间2023-05-30T19:40:10Z<br>官方中国新华社报道，“神舟十六号”载人飞船经历约6.5小时飞行后，于5月30日北京时间16:29（08:29 GMT）与中国天宫空间站完成对接，“神十六”与“神十五”航天员在站内会合。
 
 “神十六”三位航天员各有什么背景？BBC中文透过这套组图给您介绍。 https://t.co/nztJV6POJK<br><img src='/temp/image/2023/u-Month-5/1663510609709924352_0.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663510609709924352_1.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663510609709924352_2.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663510609709924352_3.jpg' width='270' height='370'><br><br>北京时间2023-05-30T18:17:27Z<br>皮塔（Pita Limjaroenrat）将成为泰国78年来最年轻的总理，这让大部分时间里都在统治泰国的保守派政治机构感到震惊。
 
