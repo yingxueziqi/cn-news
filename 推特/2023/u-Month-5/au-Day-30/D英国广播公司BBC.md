@@ -1,4 +1,4 @@
-北京时间2023-05-30T22:09:21Z<br>俄罗斯国防部5月30日宣称乌克兰在当天向莫斯科以无人机策动连环“恐怖袭击”，总统普京（Vladimir Putin）指控基辅“恫吓”俄国。
+北京时间2023-05-30T22:59:53Z<br>国际特赦组织（Amnesty International）改变之前说法，称新疆维吾尔族博士生阿不都外力·阿不都热合曼（Abuduwaili Abudureheman）并未从南韩（韩国）前往香港。中国香港特区政府5月30日深夜发表回应，批评该组织言论“可耻不实”，要求道歉。… https://t.co/9WEINIZyvf https://t.co/lknUmuBZeY<br><img src='/temp/image/2023/u-Month-5/1663560869505294336_0.jpg' width='270' height='370'><br><br>北京时间2023-05-30T22:09:21Z<br>俄罗斯国防部5月30日宣称乌克兰在当天向莫斯科以无人机策动连环“恐怖袭击”，总统普京（Vladimir Putin）指控基辅“恫吓”俄国。
 
 这是俄罗斯入侵乌克兰一年多以来，俄国首都首次遇袭。俄方称有多架无人机在高级官员聚居的莫斯科西郊盘旋。市长索比亚宁（Sergei Sobyanin）称，袭击并未造成任何严重伤亡。… https://t.co/oT5h21VehE https://t.co/BmKjO8cKAi<br><img src='/temp/image/2023/u-Month-5/1663548154594328582_0.jpg' width='270' height='370'><img src='/temp/image/2023/u-Month-5/1663548154594328582_1.jpg' width='270' height='370'><br><br>北京时间2023-05-30T21:09:04Z<br>中国外交部公布，外长秦刚5月30日在北京会晤美国企业家马斯克（Elon Musk），并简介了双方谈话内容。
 
