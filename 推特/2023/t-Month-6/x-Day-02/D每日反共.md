@@ -1,0 +1,1 @@
+北京时间2023-06-02T00:15:44Z<br>在我这也没有什么“邓公”，只有邓姓屠夫！ https://t.co/SS4ntxyX0V<br><img src='/temp/image/2023/t-Month-6/1664304734700965889_0.jpg' width='270' height='370'><br><br>北京时间2023-06-02T00:14:12Z<br>这得问共匪🙁 https://t.co/7gMA8QjJCw<br><img src='/temp/image/2023/t-Month-6/1664304349353488384_0.jpg' width='270' height='370'><br><br>
