@@ -1,0 +1,2 @@
+北京时间2023-06-03T00:03:36Z<br>现场出现前来增援的警察。 https://t.co/IeFcja1rui<br><img src='/temp/image/2023/t-Month-6/1664664069503066112_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T00:01:04Z<br>目前，学校门口还在僵持
+现场有人放起了国歌，但没人唱 https://t.co/E19O9TsFo3<br><img src='/temp/image/2023/t-Month-6/1664663429833949186_0.jpg' width='450' height='500'><br><br>
