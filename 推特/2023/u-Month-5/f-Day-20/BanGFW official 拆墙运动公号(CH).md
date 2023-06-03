@@ -7,4 +7,8 @@ We protested against the tyranny of the CCP dictatorship in Den Haag Chinatown! 
 Mr. QIAO Xinxin: don't care about the threats from CCP, any assassination or arrest toward me can make #BanGreatFirewall Movement world famous.
 #拆墙运动 #BanGFW https://t.co/lEikIJAIQN<br><img src='/temp/video/2023/u-Month-5/f-Day-20/BanGFW2/1659838184627531777_0.jpg' width='450' height='500'><br><br>北京时间2023-05-20T13:08:56Z<br>会议记要：白宫亦神亦魔，对政客应常质疑批判。做错事就得赔偿，人均赔10万美元很少。我们应天天在美国官员推特跟帖，“少TM废话、快还我们70万亿美元”，引起全球媒体报道，迫使美国最高法院紧急释法，判定中共建互联网防火墙为违宪，推动美方赔偿和海牙控告。
 
-拆墙人应多发展墙内青少年会员。#BanGFW<br><br><br>北京时间2023-05-20T11:01:46Z<br>https://t.co/myKuTb93tO<br><br><br>
+拆墙人应多发展墙内青少年会员。#BanGFW<br><br><br>北京时间2023-05-20T11:01:46Z<br>https://t.co/myKuTb93tO<br><br><br>北京时间2023-05-20T10:12:35Z<br>「共匪死穴G点大暴露：请青少年拆墙」
+
+共警近期以反诈为名进校收缴翻墙软件 ， 我们将设法吸收1.86亿墙内青少年加入 #拆墙运动 ，特别是普及高空抛洒传单，让韩联社、美联社都来报道。
+#BanGFW
+YouTube:https://t.co/WBPt2yGPzI https://t.co/fJKoPHpRYz<br><img src='/temp/image/2023/u-Month-5/1659743893062291456_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659743893062291456_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659743893062291456_2.jpg' width='450' height='500'><br><br>
