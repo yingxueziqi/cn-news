@@ -9,4 +9,7 @@ https://t.co/U18fqTap8a
 https…<br><br><br>北京时间2023-05-23T12:47:11Z<br>RT @hmc0723: 歡迎大家收聽央廣，也可以上網，下載App更方便。 https://t.co/xBGNMeN7uI<br><img src='/temp/image/2023/u-Month-5/1660869963211751424_0.jpg' width='450' height='500'><br><br>北京时间2023-05-23T10:01:54Z<br>RT @Ban_GFW: The best way to bypass the info blockade of CCP's #GreatFirewall---Listen to Radio Taiwan International 
 收聽台灣央廣電台方法：
 
-央廣成立於192…<br><br><br>
+央廣成立於192…<br><br><br>北京时间2023-05-23T01:36:23Z<br>「感謝中華民國政府喉舌“央廣”幫 #拆牆運動 向淪陷區民主喊話」
+
+央廣成立於1928年，有多個大功率電波發射塔，能覆蓋中國大陸全境，能輕鬆突破共匪的互聯網防火牆信息封鎖，低成本高效率地向牆內傳遞真實社會信息。央廣的節目快來下載APP收聽哦！牆內人士買個廉價的小收音機就好。
+#一人一推 #惡人榜 https://t.co/8tgJVzzAY8<br><img src='/temp/image/2023/u-Month-5/1660701152638537728_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660701152638537728_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660701152638537728_2.jpg' width='450' height='500'><br><br>
