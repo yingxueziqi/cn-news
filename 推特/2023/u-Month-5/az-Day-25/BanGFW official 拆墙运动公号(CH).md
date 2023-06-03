@@ -54,4 +54,10 @@ Youtube: https://t.co/riQcws3gtE
 个人简 
 介:https://t.co/TQmcPrZXX9
 
-【No.006 suspe…<br><br><br>
+【No.006 suspe…<br><br><br>北京时间2023-05-25T05:34:31Z<br>RT @End_GFW06: 【#2259专案组 互联网防火墙第005号嫌犯 #李鑫】 
+性别：男  ，1972年1月生。
+中国电子科技网络信息安全有限公司董事、党委副书记。
+擅长互联网加密和监控  .
+个人简介详情：https://t.co/anyKh0meeo
+
+【No.0…<br><br><br>
