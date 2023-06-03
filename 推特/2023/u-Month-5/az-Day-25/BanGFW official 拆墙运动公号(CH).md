@@ -46,4 +46,12 @@ Youtube: https://t.co/riQcws3gtE
 擅长互联网加密和监控  .
 个人简历：https://t.co/F99V0If27r
 
-【No.0027suspect in…<br><br><br>
+【No.0027suspect in…<br><br><br>北京时间2023-05-25T05:34:49Z<br>RT @End_GFW06: 【#2259专案组 互联网防火墙第006号嫌犯 #郝志强】
+性别：男，
+工业和信息化部电子通信行业职业技能鉴定指导中心主任.
+ 擅长互联网加密和监控  。
+
+个人简 
+介:https://t.co/TQmcPrZXX9
+
+【No.006 suspe…<br><br><br>
