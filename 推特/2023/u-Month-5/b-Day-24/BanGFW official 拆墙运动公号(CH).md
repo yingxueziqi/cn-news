@@ -5,4 +5,12 @@
 
 你咋看？ https://t.co/x4XgpzChtN<br><img src='/temp/image/2023/u-Month-5/1661364800415490048_0.jpg' width='450' height='500'><br><br>北京时间2023-05-24T21:14:31Z<br>歡迎來聽能突破防火牆的央廣節目 • #拆牆運動 傑出義工林生亮和王清鵬借台灣“央廣”聲波向14億淪陷區同胞喊話：請鎖定迫害你的軍警特的長相和家庭信息 • 留著好好清算他們的罪行
 #一人一推 #惡人榜 
-https://t.co/4MZbZ6VtTt https://t.co/5fwHOXyND1<br><img src='/temp/image/2023/u-Month-5/1661360024701243395_0.jpg' width='450' height='500'><br><br>
+https://t.co/4MZbZ6VtTt https://t.co/5fwHOXyND1<br><img src='/temp/image/2023/u-Month-5/1661360024701243395_0.jpg' width='450' height='500'><br><br>北京时间2023-05-24T15:24:12Z<br>RT @Ldl076ya: 不忘记！
+我们不能忘记！
+纪念 #六.四！
+感谢加拿大的民主人士对六四纪念付出的行动！
+同时也感谢为 #拆除 中共 #互联网防火墙 努力的奋斗的民主人士！
+
+#拆墙运动 #BanGFW
+
+ https://t.co/UtrnDrao7m<br><br><br>
