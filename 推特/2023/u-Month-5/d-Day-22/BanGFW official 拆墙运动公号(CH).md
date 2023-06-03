@@ -3,4 +3,7 @@
 8 main tasks of global #BanGFW Movement https://t.co/0aJLwdIe9I<br><img src='/temp/image/2023/u-Month-5/1660504341047025665_0.jpg' width='450' height='500'><br><br>北京时间2023-05-22T11:33:57Z<br>#拆墙运动 创始人乔鑫鑫个人简历（中文版）绝非圣人君子，请注意提防其魔性的一面。乔氏教育和家境并不显赫，你也可以模仿拆墙成名经验。心直口快，愿意分享，永久放弃所有拆墙相关的著作版权。
 Profile of  #BanGFW Movement's founder Mr. QIAO Xinxin (Chinese version) https://t.co/pSXjV05xeQ<br><img src='/temp/image/2023/u-Month-5/1660489147944173569_0.jpg' width='450' height='500'><br><br>北京时间2023-05-22T01:26:07Z<br>「最后大反攻•民主派3年内执掌中国政权」
 
-世界民主大潮浩浩荡荡，逆势者亡。民主者并非三头六臂，也大多软肋在中国，但仍浴血奋战，绝不会坐视自身政治影响力，为中产的岁静买单。中共经济垮台，正加紧搜刮百姓，千万富豪都被迫去走线。动物世界都会互相帮助，精致利己无异于自杀！#BanGFW https://t.co/t6NCtw80EA<br><img src='/temp/image/2023/u-Month-5/1660336181178138624_0.jpg' width='450' height='500'><br><br>
+世界民主大潮浩浩荡荡，逆势者亡。民主者并非三头六臂，也大多软肋在中国，但仍浴血奋战，绝不会坐视自身政治影响力，为中产的岁静买单。中共经济垮台，正加紧搜刮百姓，千万富豪都被迫去走线。动物世界都会互相帮助，精致利己无异于自杀！#BanGFW https://t.co/t6NCtw80EA<br><img src='/temp/image/2023/u-Month-5/1660336181178138624_0.jpg' width='450' height='500'><br><br>北京时间2023-05-22T00:27:15Z<br>「倡议书：中国民主工分制来了 • 再不全力反共你就变孤家寡人 」
+
+中共坏事做尽还没倒台，和精致利己主义大泛滥有巨大关系，结果就是倒在地上没人扶，千万家产一夜被抢却没人帮发声，等尝到铁拳时已经晚了。不反中共也是原罪，各民主派的国际影响力应优先回馈和支持工分高者。
+#BanGFW #拆墙运动 https://t.co/9B528iN0W8<br><img src='/temp/image/2023/u-Month-5/1660321365856231424_0.jpg' width='450' height='500'><br><br>
