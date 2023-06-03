@@ -60,4 +60,6 @@ Youtube: https://t.co/riQcws3gtE
 擅长互联网加密和监控  .
 个人简介详情：https://t.co/anyKh0meeo
 
-【No.0…<br><br><br>
+【No.0…<br><br><br>北京时间2023-05-25T01:38:44Z<br>#拆墙运动 强硬反呛中共公安 · 你TM如果还不自首恐怕牢底坐穿！ 只要俺们有兴趣 · 也可以查你祖宗三代！
+
+#BanGFW #恶人榜 #中华合众国  #联邦政府 #过渡期 https://t.co/tkZl4Jp33a<br><img src='/temp/image/2023/u-Month-5/1661426520366395397_0.jpg' width='450' height='500'><br><br>
