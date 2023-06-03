@@ -3,4 +3,6 @@
 
 對於曾威脅和迫害 #拆牆運動 的惡人，有人建議不必局限於民主國家那套規則，因為中共的邪惡滔天，打死、餓死了1億人，沒資格享受民主式制度，而應連本帶息地雙倍償還，或至少對等償還，這也符合中國傳統規則“以血還血以牙還牙”。
 
-你咋看？ https://t.co/x4XgpzChtN<br><img src='/temp/image/2023/u-Month-5/1661364800415490048_0.jpg' width='450' height='500'><br><br>
+你咋看？ https://t.co/x4XgpzChtN<br><img src='/temp/image/2023/u-Month-5/1661364800415490048_0.jpg' width='450' height='500'><br><br>北京时间2023-05-24T21:14:31Z<br>歡迎來聽能突破防火牆的央廣節目 • #拆牆運動 傑出義工林生亮和王清鵬借台灣“央廣”聲波向14億淪陷區同胞喊話：請鎖定迫害你的軍警特的長相和家庭信息 • 留著好好清算他們的罪行
+#一人一推 #惡人榜 
+https://t.co/4MZbZ6VtTt https://t.co/5fwHOXyND1<br><img src='/temp/image/2023/u-Month-5/1661360024701243395_0.jpg' width='450' height='500'><br><br>
