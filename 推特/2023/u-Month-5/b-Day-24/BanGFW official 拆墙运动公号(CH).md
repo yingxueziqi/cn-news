@@ -15,4 +15,4 @@ https://t.co/4MZbZ6VtTt https://t.co/5fwHOXyND1<br><img src='/temp/image/2023/u-
 
  https://t.co/UtrnDrao7m<br><br><br>北京时间2023-05-24T13:09:24Z<br>RT @EvelynZworld: 突发奇想，要不六四那天各国志愿者组织个撒传单快闪活动？
 留言报名拉群哈～<br><br><br>北京时间2023-05-24T12:35:10Z<br>公开信：劝中国同胞勿再闯南美雨林偷渡美国 · 你我狠心反共3年搞拆墙运动都可成开国英雄 · 高空抛洒拆墙传单就能起到原子弹级杀伤力
- #拆墙运动  #BanGFW #GreatFirewall https://t.co/rPxCFrflib<br><img src='/temp/image/2023/u-Month-5/1661229327286157312_0.jpg' width='450' height='500'><br><br>
+ #拆墙运动  #BanGFW #GreatFirewall https://t.co/rPxCFrflib<br><img src='/temp/image/2023/u-Month-5/1661229327286157312_0.jpg' width='450' height='500'><br><br>北京时间2023-05-24T10:52:37Z<br>RT @BanGFW2: 喬鑫鑫曾在今年2月回中國前夕，就構思了“公審白宮”框架，中國人過去幾十年遭受的巨大人禍，美國政府起碼要負責1/3~1/2責任，但因領導拆牆運動而暫停寫書計劃。希望有識之士能站出來，該書有助於佔據國際道德制高點，壓制美國境內各政客、軍火商、科技公司、銀行…<br><br><br>
