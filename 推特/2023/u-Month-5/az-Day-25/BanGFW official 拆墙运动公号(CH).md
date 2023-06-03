@@ -28,4 +28,12 @@ Youtube: https://t.co/riQcws3gtE
 若再拒不伏法自首、戴罪立功
 如实全部交代罪行并举报上下级
 将面临全球追逃和从重判刑！
-#中华合众国 #联邦政府 #过渡期 #BanGFW #GreatFirewall https://t.co/aQ2N8lSnQ0<br><img src='/temp/video/2023/u-Month-5/az-Day-25/BanGFW2/1661600052056555521_0.jpg' width='450' height='500'><br><br>
+#中华合众国 #联邦政府 #过渡期 #BanGFW #GreatFirewall https://t.co/aQ2N8lSnQ0<br><img src='/temp/video/2023/u-Month-5/az-Day-25/BanGFW2/1661600052056555521_0.jpg' width='450' height='500'><br><br>北京时间2023-05-25T12:11:02Z<br>【下述Youtube频道就1个论调：中共3年内垮台】
+
+乔鑫鑫2020年1月底从南宁机场出境，当时正值新冠起始期，就听说多少万家中小企业会倒闭。今年2月3日再回中国1个月，走访多个省，看盛世下流浪者和起义者无数，共匪快亡了！
+
+普通百姓聊真实的中国
+中国百姓实录
+中国那些事
+真實的中國百姓
+平凡百姓紀實 https://t.co/FzTUS0K0V6<br><img src='/temp/image/2023/u-Month-5/1661585641971527680_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_3.jpg' width='450' height='500'><br><br>
