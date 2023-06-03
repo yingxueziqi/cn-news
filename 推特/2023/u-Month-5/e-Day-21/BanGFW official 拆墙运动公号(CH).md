@@ -11,4 +11,4 @@ B. 30页《日本语半年速成宝典》
 https://t.co/HnTWkt16yE https://t.co/moDVmykRoU<br><img src='/temp/image/2023/u-Month-5/1660153866179198977_0.jpg' width='450' height='500'><br><br>北京时间2023-05-21T11:07:41Z<br>#拆墙运动 有理论素养更是实战派，欢迎80亿人来拆毁中共的互联网防火墙的诚意从没减退，我们会认真回复心平气和、理性客观的邮件。
 
 发邮件才是最靠谱的陌生拜访方式，对于粉丝不到100、文字不到100、只提问题不说对策的网友，其非邮件方式，一般不回复，敬请原谅！📬BanGFW@protonmail.com
-#BanGFW https://t.co/SLoySawm37<br><img src='/temp/image/2023/u-Month-5/1660120149129859077_0.jpg' width='450' height='500'><br><br>
+#BanGFW https://t.co/SLoySawm37<br><img src='/temp/image/2023/u-Month-5/1660120149129859077_0.jpg' width='450' height='500'><br><br>北京时间2023-05-21T09:46:14Z<br>RT @Jwang312: 如果一个人真正静下来思考30秒，就能理解拆了中共防火墙，自由世界网络环境就会被污染这种话是给中共帮腔的扯淡。最反共的声音都在墙内。为什么看不到？有绝对严格的言论管制你当然看不到这不是废话吗。为什么中文网络有如此浓的反串文化和阴阳文化？说明人们想正常说…<br><br><br>
