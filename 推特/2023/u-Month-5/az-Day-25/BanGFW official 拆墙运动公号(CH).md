@@ -36,4 +36,6 @@ Youtube: https://t.co/riQcws3gtE
 中国百姓实录
 中国那些事
 真實的中國百姓
-平凡百姓紀實 https://t.co/FzTUS0K0V6<br><img src='/temp/image/2023/u-Month-5/1661585641971527680_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_3.jpg' width='450' height='500'><br><br>
+平凡百姓紀實 https://t.co/FzTUS0K0V6<br><img src='/temp/image/2023/u-Month-5/1661585641971527680_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_3.jpg' width='450' height='500'><br><br>北京时间2023-05-25T11:19:59Z<br>#拆墙运动 是否应改名为 #拆墙革命 ？
+
+乔鑫鑫半年前写过海外“白纸运动”2篇长报道，华府中文部下了份内部通知，自由亚洲发稿全部统一为“白纸运动”。事后来看，此用词更准确，谈不上革命，属于被关3年的感性回骂，诉求过多，能准确记住的人很少。拆墙只有1个诉求，但能撼动中共整个政权根基 #BanGFW https://t.co/nH1prubxqe<br><img src='/temp/image/2023/u-Month-5/1661572793518129152_0.jpg' width='450' height='500'><br><br>
