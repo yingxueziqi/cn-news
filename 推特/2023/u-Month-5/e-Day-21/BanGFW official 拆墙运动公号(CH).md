@@ -19,4 +19,4 @@ https://t.co/HnTWkt16yE https://t.co/moDVmykRoU<br><img src='/temp/image/2023/u-
 是极端的言论管控，造就遍地战狼的氛围。…<br><br><br>北京时间2023-05-21T09:19:12Z<br>#拆墙运动 日后也得在美国搞个GFW博物馆，把中共的罪恶永远钉在十字架上。<br><br><br>北京时间2023-05-21T09:08:39Z<br>RT @bj_8964: @BanGFW2 现在墙内很多人为了用chatgpt midjourney这些ai工具都在了解翻墙，正是拆墙的好时机。<br><br><br>北京时间2023-05-21T09:08:20Z<br>RT @jackshu12: @BanGFW2 拆墙才是中共最害怕的事情<br><br><br>北京时间2023-05-21T08:59:13Z<br>「键政派和说书人遍地•实锤反共才可能有人有钱💰」
 
 中文推特圈只有约1000万人，自称反共者，Twitter上往往只是漫无目的地评论、转发党国时政，没联络墙内力量，更没动到非中文圈力量，粉丝没1000。反击共匪力道几乎为0。不必再苦苦摸索，#拆墙运动 项目基本成熟，请你也来天天痛击共匪软肋
-#BanGFW https://t.co/JjnN0L5SPO<br><img src='/temp/image/2023/u-Month-5/1660087818625114113_0.jpg' width='450' height='500'><br><br>
+#BanGFW https://t.co/JjnN0L5SPO<br><img src='/temp/image/2023/u-Month-5/1660087818625114113_0.jpg' width='450' height='500'><br><br>北京时间2023-05-21T08:30:34Z<br>RT @xtatpc: @BanGFW2 @RealHaonian 攻防一直在进行中，拆不完，补不完。建和补是国家队，打洞的只是个人队，这个态势没变过，特殊时期VPN几乎都失效或抽风，但平时并不想封死，只是控制比例。不要幻想有一劳永逸的西方技术“大杀器”，根本不存在这样的东西。…<br><br><br>
