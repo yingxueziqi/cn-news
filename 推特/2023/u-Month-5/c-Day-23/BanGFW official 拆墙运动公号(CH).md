@@ -6,4 +6,4 @@ https://t.co/ty8nPyO10Q
 国内安卓手机应用商店没有台湾之音，可以从APKPure下载
 https://t.co/U18fqTap8a
 或者以下链接免翻墙下载
-https…<br><br><br>
+https…<br><br><br>北京时间2023-05-23T12:47:11Z<br>RT @hmc0723: 歡迎大家收聽央廣，也可以上網，下載App更方便。 https://t.co/xBGNMeN7uI<br><img src='/temp/image/2023/u-Month-5/1660869963211751424_0.jpg' width='450' height='500'><br><br>
