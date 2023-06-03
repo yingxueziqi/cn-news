@@ -10,4 +10,10 @@ Youtube: https://t.co/riQcws3gtE
 性别：男，1977年2月生，
 擅长互联网加密和监控
 简历：https://t.co/vO3c6Cyyik
-【No.009 suspect in building #GreatFirewall…<br><br><br>
+【No.009 suspect in building #GreatFirewall…<br><br><br>北京时间2023-05-25T21:21:23Z<br>RT @End_GFW06: 【#2259专案组 互联网防火墙第010号嫌犯 #刘海峰】
+性别：男，
+工作单位：北京市政务信息安全保障中心
+从事专业网络空间安全、数据安全
+擅长互联网加密和监控。
+国家网络安全：https://t.co/2nPhNiGbyI
+【No.010 su…<br><br><br>
