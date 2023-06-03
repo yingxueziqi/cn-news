@@ -3,4 +3,5 @@
 韩国总统近期参加广岛的G7峰会，也要一起反中共，中共就阻止韩国艺人演出、用互联网防火墙封锁第1大门户网站NAVER，震动全韩，韩国外交部表态，正密切关注事态走向。中共只剩3年了
 #BanGFW #拆墙
 
-https://t.co/4X7uBPavcz<br><br><br>北京时间2023-05-27T12:07:29Z<br>RT @Ban_GFW: @MyloveKBS Many S. Korean in China are complaining the Chinese Communist Party again blocks their portal website NAVER  #Great…<br><br><br>
+https://t.co/4X7uBPavcz<br><br><br>北京时间2023-05-27T12:07:29Z<br>RT @Ban_GFW: @MyloveKBS Many S. Korean in China are complaining the Chinese Communist Party again blocks their portal website NAVER  #Great…<br><br><br>北京时间2023-05-27T11:12:31Z<br>RT @Ban_GFW: 韩联社：#拆墙运动 急需韩语作家，以反击中共防火墙把Naver等多个门户网全封锁
+S. Korea's  @YonhapNews tells #BanGFW need Korean writers while CCP has blocked all p…<br><br><br>
