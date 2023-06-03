@@ -1,0 +1,1 @@
+北京时间2023-05-24T23:40:02Z<br>RT @YShuisang: @realcaixia https://t.co/yk21jbt6jM<br><img src='/temp/image/2023/u-Month-5/1661396647061118979_0.jpg' width='450' height='500'><br><br>北京时间2023-05-24T23:03:21Z<br>你通过高空抛洒 #拆墙运动 传单而顺利获选为 #中华合众国联邦政府 新任大总统，为了接轨欧美民主标准，你会支持废除老虎凳、满清十大酷刑、死刑吗？<br><br><br>
