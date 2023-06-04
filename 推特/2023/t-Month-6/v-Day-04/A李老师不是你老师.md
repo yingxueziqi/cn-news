@@ -1,4 +1,10 @@
-北京时间2023-06-04T12:08:24Z<br>https://t.co/BvPYiUEd6g<br><img src='/temp/image/2023/t-Month-6/1665208857587580929_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665208857587580929_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:08:04Z<br>网友投稿
+北京时间2023-06-04T14:03:29Z<br>PS：不是说我不让你在墙内发，只是希望你认清风险，毕竟有些墙内账号被封了以后生活还是挺麻烦的。<br><br><br>北京时间2023-06-04T13:59:29Z<br>想了想，还是需要友情提示一下大家
+每年的今天都是互联为审查最严格的时期，任何一丁点的影射都会封号禁言，请大家珍惜自己的墙内账号，不要去做无谓的测试，发表言论之前先认清风险。<br><br><br>北京时间2023-06-04T13:42:48Z<br>网友投稿
+6月3日，山东东营。一男子在派出所内关押一夜后死亡。家属在东营滨北派出所门口维权。 https://t.co/WuToo33yPG<br><img src='/temp/image/2023/t-Month-6/1665232615719284736_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665232615719284736_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665232615719284736_2.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:50:45Z<br>还有一个
+https://t.co/PtKofkqnmQ<br><br><br>北京时间2023-06-04T12:35:28Z<br>网友投稿
+6月4日中午，英国驻华大使馆微博发布了1989年6月4日的人民日报头版。
+随后微博被删除。 https://t.co/pDdPg6mst3<br><img src='/temp/image/2023/t-Month-6/1665215671347576833_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665215671347576833_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:30:23Z<br>网友投稿
+6月3日，网传各地学校开始下发通知要求上交护照，禁止教职工私自出国。 https://t.co/s6nDO68EyJ<br><img src='/temp/image/2023/t-Month-6/1665214388851077120_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_2.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:08:24Z<br>https://t.co/BvPYiUEd6g<br><img src='/temp/image/2023/t-Month-6/1665208857587580929_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665208857587580929_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:08:04Z<br>网友投稿
 6月3日，南昌一高校学生发视频称自己在食堂吃出一颗老鼠头，食堂方面坚称这就是“鸭脖”。
 南昌市高新区市场监督管理局接到情况报告后，第一时间派出执法人员到该校开展调查，问询学校工作人员、食堂负责人、当事学生及相关知情人，对食品留样进行采样检测。
 之后当事人出面澄清，称确实是鸭脖。<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665208772392804353_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T11:43:40Z<br>网友投稿
