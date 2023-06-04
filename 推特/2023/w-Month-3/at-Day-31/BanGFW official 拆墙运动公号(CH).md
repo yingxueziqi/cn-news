@@ -13,4 +13,5 @@
 
 中共副部长已从各省调集40名网警进北京，对本运动迅速展开1个月行动，党国早已狼烟四起、警力疲乏，这足见 #BanGFW 已触动其政权根基。敬请你每天对 #拆墙 话题重写帖、转发等，也欢…<br><br><br>北京时间2023-03-31T14:36:37Z<br>RT @tismydutyc57547: 【 Let's #BanTikTok  #BanGFW together】
 
-Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Intern…<br><br><br>
+Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Intern…<br><br><br>北京时间2023-03-31T11:30:18Z<br>RT @ShengXue_ca: 中华民国总统蔡英文出访过境美国，在美国受到外国元首的礼遇。蔡英文作为总统，捍卫的是她国家和人民的尊严。
+而站在街边抗议她是汉奸的，誓言中国必定统一的那些人，多是背弃自己的祖国中国，主动和中国分裂，用脚投票，甚至很多人冒着生命危险，千辛万苦投奔美…<br><br><br>
