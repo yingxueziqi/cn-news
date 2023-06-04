@@ -3,4 +3,4 @@
 开始时间为北京时间今晚8点开始
 10点结束 https://t.co/Rkb1pYM4zD<br><br><br>北京时间2023-04-08T12:51:35Z<br>RT @Ban_GFW: 拆墙军校中文部第01期招聘100名开路先锋，独当一面地动员人们拆墙，诚挚欢迎中文等各语种人才加入！
 
-We sincerely recruit 100 pioneers to lead others to tear down CCP’s Interne…<br><br><br>
+We sincerely recruit 100 pioneers to lead others to tear down CCP’s Interne…<br><br><br>北京时间2023-04-08T12:19:55Z<br>RT @Ban_GFW: Initiators of #BangGFW Movement, without money and tech, why we can easily scare CCP top officials in 2 weeks?  We know Englis…<br><br><br>
