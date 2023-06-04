@@ -10,4 +10,10 @@
 
 最近普京都能被国际刑事法院开出逮捕令, 这是针对联合国5大巨头之在任国家元首的首次, 习又出访普京.<br><br><br>北京时间2023-03-21T12:26:44Z<br>中、日两国元首同时出访东欧，习近平去见国际战犯普京，岸田文雄去见民主派的泽连斯基。日本国内近期又会加速反共了！<br><br><br>北京时间2023-03-21T11:45:58Z<br>RT @wangqingpeng1: Xi Jinping is not the leader of China.
 He is the leader of the Chinese Communist Party. Thanks！
-Majority of Chinese supp…<br><br><br>
+Majority of Chinese supp…<br><br><br>北京时间2023-03-21T11:38:26Z<br>RT @zengjieming: 因为中国民运没有钱，没钱能进什么展？
+
+当年在获得德国和美国的犹太银行家大力资助之前，列疯子一伙有什么进展？
+
+中国民运三十年无进展的最大原因，是美国扶持中共，拒绝帮助中国民运，美国和西方都根本不愿意中共垮台。
+
+这么多年了你还没看明白吗？<br><br><br>
