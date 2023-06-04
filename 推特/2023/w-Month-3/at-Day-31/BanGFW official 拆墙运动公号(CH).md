@@ -11,4 +11,6 @@
 
 #拆墙 人将请 #恶人榜 战友，日夜不停问候公安部11局，再邀请国际媒体…<br><br><br>北京时间2023-03-31T14:37:00Z<br>RT @ldskjsdavds: 【请快来支援 #拆墙运动 拟集结400人迎接匪警40人】
 
-中共副部长已从各省调集40名网警进北京，对本运动迅速展开1个月行动，党国早已狼烟四起、警力疲乏，这足见 #BanGFW 已触动其政权根基。敬请你每天对 #拆墙 话题重写帖、转发等，也欢…<br><br><br>
+中共副部长已从各省调集40名网警进北京，对本运动迅速展开1个月行动，党国早已狼烟四起、警力疲乏，这足见 #BanGFW 已触动其政权根基。敬请你每天对 #拆墙 话题重写帖、转发等，也欢…<br><br><br>北京时间2023-03-31T14:36:37Z<br>RT @tismydutyc57547: 【 Let's #BanTikTok  #BanGFW together】
+
+Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Intern…<br><br><br>
