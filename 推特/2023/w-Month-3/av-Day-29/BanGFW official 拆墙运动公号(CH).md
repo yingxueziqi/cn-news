@@ -1,4 +1,4 @@
 北京时间2023-03-29T22:47:57Z<br>都来参加台湾的 #禁抖音 运动吧！和我等 #拆墙 运动串联一下！
 #BanTiktok #BanGFW https://t.co/rSsp8yQtgF<br><img src='/temp/image/2023/w-Month-3/1641089820150882304_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641089820150882304_1.jpg' width='450' height='500'><br><br>北京时间2023-03-29T22:37:57Z<br>RT @oishi_359: 日中network技術部会の報告では中国でFacebookやTwitterのDNS検索すると変なアドレスが返されてアクセスできない！GFWの仕業 #日中network #alieaters https://t.co/bVoSn0wSa2<br><img src='/temp/image/2023/w-Month-3/1641087302863839232_0.jpg' width='450' height='500'><br><br>北京时间2023-03-29T18:04:20Z<br>RT @Ban_GFW: Great thanks to  news report of Vietnam‘s KHUNG TRỜI MỚI!
 
-It has 400K readers, our open letter to help 1.4 billion Chinese te…<br><br><br>
+It has 400K readers, our open letter to help 1.4 billion Chinese te…<br><br><br>北京时间2023-03-29T15:50:11Z<br>RT @VOAChinese: 美国副国务卿谢尔曼3月27日在大西洋理事会与网络自由联盟主办的一场研讨会上说，在民主国家试图通过互联网的力量来提升个人最大潜力时，威权政府则试图利用这些技术来煽动恐惧和侵犯人类尊严。她说，在像中国这样的威权政府利用网络剥夺公民权时，民主国家更需加…<br><br><br>
