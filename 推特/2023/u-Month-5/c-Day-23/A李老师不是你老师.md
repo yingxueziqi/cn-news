@@ -16,4 +16,8 @@
 5月23日上午，武汉。一群医护人员前往武汉市江汉区卫健委，要求“还我抗疫血汗钱”“还我编制”。 https://t.co/uNSW3A1xkW<br><img src='/temp/image/2023/u-Month-5/1660930895564374019_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660930895564374019_1.jpg' width='450' height='500'><br><br>北京时间2023-05-23T16:44:29Z<br>网友投稿
 网传北京中介爆料北京楼市情况 https://t.co/0NbYZrs5yz<br><img src='/temp/image/2023/u-Month-5/1660929681477054465_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660929681477054465_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660929681477054465_2.jpg' width='450' height='500'><br><br>北京时间2023-05-23T16:41:21Z<br>据悉，该名教师在“朝鲜战争评价”一节中称朝鲜战争对中国来说是一场错误战争，错上加错的是官方至今不认错。
 下午两点，环球时报发文称兰州大学已道歉，但是目前没有进一步针对教师做出处理的消息。
-2/2 https://t.co/Oq8R2QNoEs<br><img src='/temp/image/2023/u-Month-5/1660928893740515329_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928893740515329_1.jpg' width='450' height='500'><br><br>
+2/2 https://t.co/Oq8R2QNoEs<br><img src='/temp/image/2023/u-Month-5/1660928893740515329_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928893740515329_1.jpg' width='450' height='500'><br><br>北京时间2023-05-23T16:38:32Z<br>网友投稿
+“兰州大学到底说了什么？”
+5月23日，兰州大学一名教师在课堂上发表关于抗美援朝的不当言论被学生拍照上传到网上。
+然而令人无语的是，尽管遭到了爱国大V们的口诛笔伐，但是所有讨论相关内容的图片均被和谐。
+1/2 https://t.co/qtp8BroMQA<br><img src='/temp/image/2023/u-Month-5/1660928185008103424_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_3.jpg' width='450' height='500'><br><br>
