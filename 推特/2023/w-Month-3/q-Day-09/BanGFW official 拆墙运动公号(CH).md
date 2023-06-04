@@ -13,4 +13,8 @@ https://t.co/eDgjd0kcAu<br><br><br>北京时间2023-03-09T17:00:29Z<br>中共网
 https://t.co/xE2EpqkP3j<br><br><br>北京时间2023-03-09T04:24:56Z<br>RT @qiaoxinxin88: @committeeonccp @LTGHRMcMaster @RepMoulton @CongressmanRaja @RepHaleyStevens Your committee only need to invest a tiny am…<br><br><br>北京时间2023-03-09T02:56:56Z<br>欢迎来联名签署“助14亿中国人自由访问Google、Youtube并终结互联网防火墙”, 陆续要增加日韩泰等20个语种。
 Let's sign the petition "Help 1​.​4 billion Chinese to visit Google Youtube freely &amp; end GFW". Over 20 languages versions should be added later.
 #EndGFW
-https://t.co/MJznHKvkxB<br><br><br>
+https://t.co/MJznHKvkxB<br><br><br>北京时间2023-03-09T01:29:49Z<br>最新数据：中国互联网防火墙封锁了30多万个域名，其中1800个为全球流行的网站。
+
+#EndGFW
+
+https://t.co/LZ9pmm6XHn<br><br><br>
