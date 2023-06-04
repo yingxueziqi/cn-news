@@ -4,4 +4,4 @@
 
 墙内喜欢看黄色内容的推友要小心了！ https://t.co/LaRGGVlIcx<br><img src='/temp/video/2023/w-Month-3/j-Day-16/BanGFW2/1636195727876702209_0.jpg' width='450' height='500'><br><br>北京时间2023-03-16T08:29:56Z<br>RT @JamieMetzl: 我邀请您阅读我在美国众议院举行的关于 COVID-19 起源的听证会上发表的开场白。我希望有人能主动把它翻译成中文。
 
-https://t.co/mCnlMSnYL0<br><br><br>
+https://t.co/mCnlMSnYL0<br><br><br>北京时间2023-03-16T02:31:55Z<br>太好了，这货上蹿下跳，推特上弄一大堆垃圾信息，终于能还海外民运一些安宁了。<br><br><br>
