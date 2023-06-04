@@ -5,4 +5,7 @@
 2000年以来，中共每年耗60亿美元打造和运营互联网防火墙，封了Google Facebook等全球31万家网站，切断14亿人与66亿人的联系，引起双方误解和潜在战争，其人口隔离罪远超柏林墙和南非，请求联合国立即启动调查并制裁。
 
 控诉人：张三、李四…
-#EndGFW #拆墙运动 https://t.co/CuqYYug0VM<br><img src='/temp/image/2023/w-Month-3/1634890736176091141_0.jpg' width='450' height='500'><br><br>
+#EndGFW #拆墙运动 https://t.co/CuqYYug0VM<br><img src='/temp/image/2023/w-Month-3/1634890736176091141_0.jpg' width='450' height='500'><br><br>北京时间2023-03-12T17:03:55Z<br>「中国境内定期翻墙者占比不到1‰」
+
+两三年前，我在新品葱上看到比较权威的预测，每个月经常用VPN翻墙者约100万。除了部分程序员外，大部分应该是体制内，看色网占比最多。墙技术升级快、警察也在加大抓人，胆大技高者，翻几次可能就放弃了。翻墙形势是不太乐观的。
+#EndGFW #拆墙运动 https://t.co/Zqtn1Nv33d<br><img src='/temp/image/2023/w-Month-3/1634842647063072772_0.jpg' width='450' height='500'><br><br>
