@@ -9,4 +9,7 @@ https://t.co/qtHcNmvQHS<br><br><br>北京时间2023-05-02T13:41:59Z<br>RT @Lucky
 Great thanks! #BanGFW is featured in the report of Liberty Times, which's one of the big 4 newspapers in Taiwan.  
 
 #BanGFW #BanGreatFirewall #互联网防火墙 #ベルリンの壁 #インタネット #拆墙运动 
-https://t.co/79OYGcurxr<br><br><br>
+https://t.co/79OYGcurxr<br><br><br>北京时间2023-05-02T13:05:09Z<br>感謝台灣四大主流報媒“聯合報”系旗下《經濟日報》對 #拆牆運動 的大力報導
+Great thanks! #BanGFW is featured in the report of UDN news, which's one of the big 4 newspapers in Taiwan. 
+#BanGFW #BanGreatFirewall #互联网防火墙 #ベルリンの壁 #インタネット #拆墙
+https://t.co/9orf2JE1gD<br><br><br>
