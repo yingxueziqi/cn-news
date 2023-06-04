@@ -10,4 +10,7 @@
 6月3日，北京网友发现“看桥员”再次上岗 https://t.co/VODJ44bQG3<br><img src='/temp/image/2023/t-Month-6/1664966153381244929_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T16:05:05Z<br>网友投稿
 6月3日10时许，四川德阳什邡市永正西街附近，一男子当街持刀捅一女子。目击者刘先生称事发于路边一药店门口，男子用刀将女子捅伤，女子被捅后躺倒在地没有动弹，随后，男子持刀划伤自己颈脖处，倒在被捅女子身上。… https://t.co/jgZy7sHOzp https://t.co/yyYU7RgaOt<br><img src='/temp/video/2023/t-Month-6/w-Day-03/whyyoutouzhele/1664906034027061249_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T03:10:26Z<br>网友投稿
 受巴黎Major“雪山狮子旗”事件影响，国内CSGO比赛不再转播现场观众画面。
-当每小局比赛结束导播切到现场观众时，国内转播流会自动切到蓝屏 https://t.co/PItVFSIs0f<br><img src='/temp/image/2023/t-Month-6/1664711085079900163_0.jpg' width='450' height='500'><br><br>
+当每小局比赛结束导播切到现场观众时，国内转播流会自动切到蓝屏 https://t.co/PItVFSIs0f<br><img src='/temp/image/2023/t-Month-6/1664711085079900163_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T01:46:14Z<br>网友投稿
+多个App和游戏近日纷纷在本周末开启“夏季维护”
+禁止发言，更换头像，个人信息等
+有直播工会宣布本周末不得户外直播，不得播外服游戏，遮挡聊天框和昵称等。 https://t.co/SPKF280jZG<br><img src='/temp/image/2023/t-Month-6/1664689898035507201_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_3.jpg' width='450' height='500'><br><br>
