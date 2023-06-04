@@ -8,4 +8,6 @@
 本朝人是阉割过的中国人，49…<br><br><br>北京时间2023-04-01T02:38:47Z<br>RT @aBIyxobDiRhzdSW: #恶人榜 义工队对侦察 #拆墙运动 的中共40余名网警劝诫信（3.30）
 
 80亿人拆墙大业，不是一些网警水军能阻挡的，红朝末年，赶紧顺应世界文明大潮，让14亿人用上Google、ChatGPT、Twitter，将功赎过，否则不久必将遭…<br><br><br>北京时间2023-04-01T02:38:14Z<br>RT @Ban_GFW: 请各位战友每天晚上用Skype等匿名网络电话问候中共网警头目
-Every night let's use Skype to say hi to those senior cyber police who suppress overseas pro-de…<br><br><br>
+Every night let's use Skype to say hi to those senior cyber police who suppress overseas pro-de…<br><br><br>北京时间2023-04-01T01:57:19Z<br>RT @Ldl076ya: #恶人榜 义工队对侦察 #拆墙运动 的中共40余名网警劝诫信（3.30）
+
+80亿人拆墙大业，不是一些网警水军能阻挡的，红朝末年，赶紧顺应世界文明大潮，让14亿人用上Google、ChatGPT、Twitter，将功赎过，否则不久必将遭到重罚！#Ba…<br><br><br>
