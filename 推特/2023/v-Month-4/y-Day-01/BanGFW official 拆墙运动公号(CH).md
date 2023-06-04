@@ -11,4 +11,6 @@ By which 1.4 billion Chinese h…<br><br><br>北京时间2023-04-01T15:44:59Z<br
 
 80亿人拆墙大业，不是一些网警水军能阻挡的，红朝末年，赶紧顺应世界文明大潮，让14亿人用上Google、ChatGPT、Twitter，将功赎过，否则不久必将遭到重罚！…<br><br><br>北京时间2023-04-01T15:26:08Z<br>RT @Ban_GFW: #BanGFW movement can end endless conflicts between China &amp; other nations soon, we need more multilingual volunteers to write &amp;…<br><br><br>北京时间2023-04-01T15:21:44Z<br>RT @macnobi: 海外の華僑へ嫌がらせする中国共産党
 公安ネット警察の電話番号が晒される🤣<br><br><br>北京时间2023-04-01T15:18:40Z<br>这么大场面竟然“数典忘祖”都搞错，中共驻纽约总领事黄屏把活动经费全贪了？
-#拆墙运动<br><br><br>
+#拆墙运动<br><br><br>北京时间2023-04-01T14:29:58Z<br>RT @EndGFW2: 【請你來當"拆牆運動"各國語言筆桿子啦！】
+
+#BanGFW 運動可以很快結束中國與別國80億人級無休止的衝突，正需要多語種志願者來撰寫和翻譯帖文和文件，引導更多國際友人指責中共互聯網防火牆，讓14億人用上Google、Youtube、Twitter。…<br><br><br>
