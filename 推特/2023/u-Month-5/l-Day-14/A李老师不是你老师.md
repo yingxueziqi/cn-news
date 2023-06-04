@@ -1,5 +1,1 @@
-北京时间2023-05-14T22:47:04Z<br>西安网友补充 https://t.co/ipXpcdoXNL<br><img src='/temp/image/2023/u-Month-5/1657759438470520832_0.jpg' width='450' height='500'><br><br>北京时间2023-05-14T20:12:18Z<br>一名旅俄中国留学生在抖音发布了一段视频
-展示自己遭遇一名从俄乌战场归来的俄罗斯士兵的歧视和挑衅。
-https://t.co/Djma4C1ABB<br><img src='/temp/video/2023/u-Month-5/l-Day-14/whyyoutouzhele/1657720490490773505_0.jpg' width='450' height='500'><br><br>北京时间2023-05-14T19:45:50Z<br>网友投稿
-西安某中学要求学生签署“不参与帮助信息网络（帮信）犯罪活动承诺书”。
-但是分享文件的标题为“帮助信息网络犯罪活动罪承诺书”，引发网友担忧。 https://t.co/qttKMVYr4W<br><img src='/temp/image/2023/u-Month-5/1657713830191939585_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657713830191939585_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657713830191939585_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657713830191939585_3.jpg' width='450' height='500'><br><br>
+北京时间2023-05-14T19:10:40Z<br>补充，西安市蓝田县教育局要求学生与老师将自己的所有社交app账号 联系电话上报 备案<br><br><br>
