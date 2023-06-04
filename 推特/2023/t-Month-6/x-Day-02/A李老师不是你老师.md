@@ -24,4 +24,4 @@
 “看苍生”
 6月1日，一部名为《人民》的视频在B站爆火
 视频中平凡人生活中的艰辛与快乐引发大量网友共鸣。 https://t.co/jUHDza1s7c<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664581910675292160_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:31:43Z<br>网友投稿
-一名小红书网友发帖称，自己的单位如果学习强国不达标要扣钱。 https://t.co/G8eobXdmaA<br><img src='/temp/image/2023/t-Month-6/1664580547924967424_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_2.jpg' width='450' height='500'><br><br>
+一名小红书网友发帖称，自己的单位如果学习强国不达标要扣钱。 https://t.co/G8eobXdmaA<br><img src='/temp/image/2023/t-Month-6/1664580547924967424_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_2.jpg' width='450' height='500'><br><br>北京时间2023-06-02T06:45:18Z<br>RT @chumacn: 拼多多的事情，我可以讲两句，其实拼多多自己并不亏损，而且血赚，我是Temu第一波邀请的200家商家之一。拼多多当时给的玩法是，定价权不在我们，在他们的运营手上，我们发样品，然后他们发价格。愿意玩的就一起，不愿意的自己滚蛋，第一波群里骂人的不在少数，但是…<br><br><br>
