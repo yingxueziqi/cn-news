@@ -1,0 +1,2 @@
+北京时间2023-04-09T19:54:20Z<br>网友投稿
+近日，人社部网站发布了全国各地区最低工资标准情况(截至2023年4月1日)，15个地区月最低工资标准在2000元及以上。其中，上海以2590元仍居榜首。 https://t.co/x6yTRs9FNC<br><img src='/temp/image/2023/v-Month-4/1645032391801446401_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1645032391801446401_1.jpg' width='450' height='500'><br><br>北京时间2023-04-09T14:05:20Z<br>有网友将相关内容发布在抖音，被判定为不实信息 https://t.co/824D6GSajQ<br><img src='/temp/image/2023/v-Month-4/1644944565273501696_0.jpg' width='450' height='500'><br><br>
