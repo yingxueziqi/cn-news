@@ -10,4 +10,5 @@
 因小学要被分流，导致家长今晚集体抗议示威，高喊“就近入学，反对分流。” https://t.co/adtv8oBFRR<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664644380450250752_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T22:35:04Z<br>网友投稿
 6月2日，武汉中国地质大学发生一起杀人未遂事件。 https://t.co/dqVJsBtCvI https://t.co/grIFIg0HZC<br><img src='/temp/image/2023/t-Month-6/1664641788341104648_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664641788341104648_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664641788341104648_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664641788341104648_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T22:33:19Z<br>网友补充
 孩子母亲生前曾自诉自己遭遇公安局民警谴责和威胁。
-有网友认为其与丈夫相继跳楼也跟遭遇有关部门的压力有关。 https://t.co/m5qPIbALUY<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664641348983455745_0.jpg' width='450' height='500'><br><br>
+有网友认为其与丈夫相继跳楼也跟遭遇有关部门的压力有关。 https://t.co/m5qPIbALUY<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664641348983455745_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T21:08:19Z<br>后续
+网传在孩子母亲跳楼后，孩子父亲也跟着跳楼，后被担架抬出。 https://t.co/nCnqChHSMm<br><img src='/temp/image/2023/t-Month-6/1664619955327844353_0.jpg' width='450' height='500'><br><br>
