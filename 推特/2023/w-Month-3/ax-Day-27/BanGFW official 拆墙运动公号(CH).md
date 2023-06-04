@@ -1,0 +1,2 @@
+北京时间2023-03-27T21:23:15Z<br>RT @ZhouFengSuo: 政策层面，可以威胁对等封锁墙内网页来要求中共开放GFW,但是选择网站对美国是是不愿意做的，更进一步就是全面封禁墙内IP,现在看来很遥远，未必不会发生。
+现在美国已经被迫考虑主动网络攻击，如果定点击垮GFW，那是最好，否则全面封禁墙内IP也是网络…<br><br><br>北京时间2023-03-27T20:13:57Z<br>RT @VNirvanaer: Because CNN is the only foreign media that the CCP GFW does not ban. It has become a peripheral organization of the CCP's p…<br><br><br>
