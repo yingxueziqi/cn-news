@@ -7,4 +7,4 @@ https://t.co/hb7UwDmosY<br><br><br>北京时间2022-12-10T21:43:02Z<br>安田君
 价值1.2亿美元的30多万吨外销中国煤炭不翼而飞，数千人零度天气包围政府大楼。疫情下蒙古国通货膨胀高达15%。
 https://t.co/mH3jdPWPAK
 https://t.co/mH3jdQeYOS<br><br><br>北京时间2022-12-10T12:33:32Z<br>蒙古国人民也反了！价值1.2亿美元的30多万吨外销中国煤炭不翼而飞，数千人零度天气包围政府大楼。
-https://t.co/mH3jdPWPAK<br><br><br>
+https://t.co/mH3jdPWPAK<br><br><br>北京时间2022-12-10T04:37:27Z<br>白话普及新冠病毒常识 https://t.co/56vZGGu25v<br><img src='/temp/image/2022/n-Month-12/1601315108180746241_0.jpg' width='450' height='500'><br><br>
