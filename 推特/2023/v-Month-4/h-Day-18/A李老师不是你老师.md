@@ -5,4 +5,7 @@
 
 我的公开接收地址 ETH: 0x9aa9854658714B6AAD07b3690Cd3Ed8D9FfD3f85
 
-我的公开接收地址 USDT: 0x9aa9854658714B6AAD07b3690Cd3Ed8D9FfD3f85<br><br><br>
+我的公开接收地址 USDT: 0x9aa9854658714B6AAD07b3690Cd3Ed8D9FfD3f85<br><br><br>北京时间2023-04-18T18:21:26Z<br>既然如此，我只能放下面子请求大家的援助
+https://t.co/Ekabp7OF2d
+欢迎大家捐助，帮助这个账号继续运营下去。
+谢谢大家。<br><br><br>
