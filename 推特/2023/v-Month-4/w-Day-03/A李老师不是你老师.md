@@ -10,4 +10,4 @@ https://t.co/gPvx2wXRTJ https://t.co/H6BFRj9bqx<br><img src='/temp/video/2023/v-
 河南村镇银行的部分储户在天桥上进行抗议示威
 据悉，时至今日，仍然有一部分储户的存款依旧没有兑现。 https://t.co/agh3UtylXc<br><img src='/temp/video/2023/v-Month-4/w-Day-03/whyyoutouzhele/1642833998962368512_0.jpg' width='450' height='500'><br><br>北京时间2023-04-03T17:13:59Z<br>CNN发布了针对拼多多的调查<br><br><br>北京时间2023-04-03T10:37:09Z<br>前情提要
 
-https://t.co/f7vtmIhC8j<br><br><br>
+https://t.co/f7vtmIhC8j<br><br><br>北京时间2023-04-03T10:36:15Z<br>有网友发现，央视网默默删除了此前发布的一系列造福神话。 https://t.co/Ti9QAudk3r<br><img src='/temp/image/2023/v-Month-4/1642717619898679299_0.jpg' width='450' height='500'><br><br>
