@@ -2,4 +2,6 @@
 艺术家三木和其他艺术家在铜锣湾进行行为艺术的时候，被三十多个警察拘捕，一路高呼，提醒人们勿忘六四。多年传统，在六月三日香港艺术家动员提醒人们纪念六四。 https://t.co/8qXIKA0…<br><br><br>北京时间2023-06-03T22:10:17Z<br>RT @wangqingpeng1: 刚得到的消息，乔鑫鑫被抓了。
 “三天前来了两个老挝警察，6个中国警察把他抓走了”，乔鑫鑫的邻居，一位老挝当地人说。
 请各界紧急关注🙏🙏🙏<br><br><br>北京时间2023-06-03T21:52:46Z<br>网友投稿
-6月3日晚，有网友发现天安门广场预约参观小程序因维护关闭。 https://t.co/KytkAsa3wx<br><img src='/temp/image/2023/t-Month-6/1664993529087553536_0.jpg' width='450' height='500'><br><br>
+6月3日晚，有网友发现天安门广场预约参观小程序因维护关闭。 https://t.co/KytkAsa3wx<br><img src='/temp/image/2023/t-Month-6/1664993529087553536_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T21:47:03Z<br>6月3日晚，武汉光谷。十五小家长继续昨天的游行示威。
+疑似因为有人被抓，现场高喊“放人”
+随后有领导出来交涉，群众再次高喊“就近入学”等口号。 https://t.co/wqjjPr9nSP https://t.co/fhEMsas3h4<br><img src='/temp/video/2023/t-Month-6/w-Day-03/whyyoutouzhele/1664992094186815490_0.jpg' width='450' height='500'><br><br>
