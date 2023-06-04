@@ -4,4 +4,5 @@ https://t.co/NtAu6Qdhpw<br><br><br>北京时间2023-05-26T20:45:14Z<br>网友投
 “反对崇洋媚外”挑战延申至线下
 近日，有浙江网友发现公交广告牌上被人涂鸦仇女言论和仇外言论。 https://t.co/9RkWuZuHD2<br><img src='/temp/image/2023/u-Month-5/1662077431518224384_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662077431518224384_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662077431518224384_2.jpg' width='450' height='500'><br><br>北京时间2023-05-26T20:18:22Z<br>网友投稿 https://t.co/QKf3OPx3Ik<br><img src='/temp/image/2023/u-Month-5/1662070671625576452_0.jpg' width='450' height='500'><br><br>北京时间2023-05-26T20:13:14Z<br>网友投稿
 5月26日，长沙。
-一名男子杀害家人后自杀。 https://t.co/usqDpZRhpc<br><img src='/temp/image/2023/u-Month-5/1662069381520556034_0.jpg' width='450' height='500'><br><br>
+一名男子杀害家人后自杀。 https://t.co/usqDpZRhpc<br><img src='/temp/image/2023/u-Month-5/1662069381520556034_0.jpg' width='450' height='500'><br><br>北京时间2023-05-26T20:06:51Z<br>网友投稿
+昨天接到通知，著名酒类品牌野格在华官方渠道/平台上和十字架相关的内容及素材需要全部撤掉。 https://t.co/7Wwn857yHU<br><img src='/temp/image/2023/u-Month-5/1662067772770209792_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662067772770209792_1.jpg' width='450' height='500'><br><br>
