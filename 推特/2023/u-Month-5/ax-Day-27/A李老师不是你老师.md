@@ -11,4 +11,7 @@ https://t.co/6uCMvirjQE<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyou
 网传冲突原因与政府打算强拆清真寺有关。 https://t.co/Dr34EI82Wm<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662336999838167040_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:46:29Z<br>网友投稿
 5月26日，河北一派出所对烟花爆竹进行取样鉴定时发生爆炸，4人死亡2人失联，5人正在救治。 https://t.co/IViTE3ODwD<br><img src='/temp/image/2023/u-Month-5/1662334436573151232_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:42:22Z<br>5月27日，网信中国发布"清朗行动"阶段性成果
 截至5月22日累计清理违规信息141.09万条，违规账号92.76万个，永久关闭账号6.66万个。 https://t.co/nYoDBiYAFj<br><img src='/temp/image/2023/u-Month-5/1662333403033640962_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662333403033640962_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662333403033640962_2.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:36:38Z<br>近日，一首今年一月份由耳光乐队创作的《十八赢》再次走红网络，歌词辛辣讽刺，将东航坠机，俄乌战争，铁链女，唐山打人案，天通苑软肋，兰州三岁娃娃等疫情期间的大事小事一一列举
-https://t.co/6plcDjFzDB<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662331958817439744_0.jpg' width='450' height='500'><br><br>
+https://t.co/6plcDjFzDB<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662331958817439744_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T04:45:36Z<br>网友投稿
+有博主路遇一辆非常科幻的警用防暴车。
+据悉，这辆防暴车由浙江湖州对口帮扶援助给青海乌兰县公安。
+外形仿造了著名科幻电影《普罗米修斯》，为电动车。目前具体使用途径未知。 https://t.co/maErANNTPE https://t.co/C9Aetrx4W0<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662198322021498880_0.jpg' width='450' height='500'><br><br>
