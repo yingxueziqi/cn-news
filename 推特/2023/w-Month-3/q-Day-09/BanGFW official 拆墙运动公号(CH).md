@@ -10,4 +10,4 @@ https://t.co/eDgjd0kcAu<br><br><br>北京时间2023-03-09T17:00:29Z<br>中共网
 最初2000年由方滨兴建成，每年维护费400个亿，防民之口程度成为世界之最！无论你西方对CCP多强硬，给中国民主派支持多大，中共都稳坐钓鱼台还反向讨伐。若墙一倒，可以想像中共还有几个月寿命！
 
 #EndGFW #推倒网络愚民墙
-https://t.co/xE2EpqkP3j<br><br><br>
+https://t.co/xE2EpqkP3j<br><br><br>北京时间2023-03-09T04:24:56Z<br>RT @qiaoxinxin88: @committeeonccp @LTGHRMcMaster @RepMoulton @CongressmanRaja @RepHaleyStevens Your committee only need to invest a tiny am…<br><br><br>
