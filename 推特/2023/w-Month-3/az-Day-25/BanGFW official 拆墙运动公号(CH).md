@@ -16,4 +16,4 @@ https://t.co/LRTyOg9E5Y<br><br><br>北京时间2023-03-25T08:04:14Z<br>RT @EndGF
 自由:个体法无禁止即可为
 别扯素质文化文明历史原罪搅浑水,别用谴责/完美受害人谬误,滑坡/循环谬误放烟雾
 天赋人权合法权益不因认知思想道德言行经历而削减!
-敌…<br><br><br>
+敌…<br><br><br>北京时间2023-03-25T07:17:04Z<br>RT @xianglin8964: 我們應該怎麼評論這四位台灣學者？ https://t.co/VWXbudpPUZ<br><img src='/temp/image/2023/w-Month-3/1639406002255835136_0.jpg' width='450' height='500'><br><br>
