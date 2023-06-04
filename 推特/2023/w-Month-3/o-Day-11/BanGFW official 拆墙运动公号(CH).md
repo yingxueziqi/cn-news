@@ -8,4 +8,6 @@
 @mikepompeo @CAV_PA #EndGFW #拆墙运动
  (1/4)As world most sophisticated Internet censorship system Great Fire Wall (GFW) ,which costs 6 billion dollars yearly, since 2000, has https://t.co/nXheQJg7cL<br><img src='/temp/image/2023/w-Month-3/1634485643157082114_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1634485643157082114_1.jpg' width='450' height='500'><br><br>北京时间2023-03-11T16:37:06Z<br>中共互联网愚民墙滔天大罪：把14亿人和66亿人强行隔离
 #EndGFW #拆墙运动
-世界独裁政权里，如越南、俄国、柬埔寨也有少数关键词封锁，但没谁每年花400亿元、封禁全球31万个网站，切断14亿人对外通信，此墙大小刑事罪名可上亿万条，对十亿级人口的隔离罪远超南非，CCP却还作为联合国5大国指点万国江山。 https://t.co/zJWnj0b3ex<br><img src='/temp/image/2023/w-Month-3/1634473511925481477_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1634473511925481477_1.jpg' width='450' height='500'><br><br>
+世界独裁政权里，如越南、俄国、柬埔寨也有少数关键词封锁，但没谁每年花400亿元、封禁全球31万个网站，切断14亿人对外通信，此墙大小刑事罪名可上亿万条，对十亿级人口的隔离罪远超南非，CCP却还作为联合国5大国指点万国江山。 https://t.co/zJWnj0b3ex<br><img src='/temp/image/2023/w-Month-3/1634473511925481477_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1634473511925481477_1.jpg' width='450' height='500'><br><br>北京时间2023-03-11T15:08:05Z<br>中共互联网愚民墙反人类罪可分秒内完成定罪证据
+
+中国民运有各议题要人支持，比如少数民族、性少数派、女权、强拆维权等，但属于特定地域，调查取证也有难度。愚民墙将14亿人与66亿人隔离的大罪，80亿人都能感知并同情，却此前少有华人提及。只要推到国际法庭，法官不进中国，也能分秒内就完成取证！ https://t.co/3iPwIM0m1Y<br><img src='/temp/image/2023/w-Month-3/1634451107908042752_0.jpg' width='450' height='500'><br><br>
