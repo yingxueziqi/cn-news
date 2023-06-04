@@ -1,3 +1,5 @@
 北京时间2023-04-08T23:46:54Z<br>根据网传信息，疑似因为家庭矛盾导致情绪激动 https://t.co/C7tifk3DT9<br><img src='/temp/image/2023/v-Month-4/1644728533959188481_0.jpg' width='450' height='500'><br><br>北京时间2023-04-08T23:36:24Z<br>网友投稿
 4月6日上午，江苏苏州常熟市某中学一名初三学生持刀伤害他人。当天上午10时，一知情者透露，事发地为常熟市实验中学崇文校区，“事发在今天早晨，女生好像拿了把匕首，被伤害男生疑似去世，具体为何发生矛盾尚不清楚。… https://t.co/pYYPYIwbjh https://t.co/K3RztTIKyh<br><img src='/temp/image/2023/v-Month-4/1644725892436959234_0.jpg' width='450' height='500'><br><br>北京时间2023-04-08T20:46:49Z<br>网友投稿 
-国内考研调剂乱象，苏州科技大学凌晨4点半发布补录信息，并要求学生半个小时内回复确认，否则视为放弃。 疑似存在暗箱操作。 https://t.co/Qj7DB3eL5l https://t.co/UKe50udl4g<br><img src='/temp/image/2023/v-Month-4/1644683213657329667_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644683213657329667_1.jpg' width='450' height='500'><br><br>
+国内考研调剂乱象，苏州科技大学凌晨4点半发布补录信息，并要求学生半个小时内回复确认，否则视为放弃。 疑似存在暗箱操作。 https://t.co/Qj7DB3eL5l https://t.co/UKe50udl4g<br><img src='/temp/image/2023/v-Month-4/1644683213657329667_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644683213657329667_1.jpg' width='450' height='500'><br><br>北京时间2023-04-08T19:49:44Z<br>网友投稿
+近日，网传江苏常熟市一段标题为“开车追杀院长，撞死两人，司机当场死亡”的爆料视频在网络上流传，并引发关注
+4月8日，常熟市卫健委回应称：“网上曝光的交通事故属实，但原因不清楚，要等警方通报。 https://t.co/xy1B45xxdq<br><img src='/temp/video/2023/v-Month-4/r-Day-08/whyyoutouzhele/1644668847272673281_0.jpg' width='450' height='500'><br><br>
