@@ -24,4 +24,4 @@
 导致海外民运不仅缺钱连观众都缺乏，
 赶紧上街抗议或写帖子转发“拆墙”事务吧！
 
-#BanTikTok #BanGFW<br><br><br>
+#BanTikTok #BanGFW<br><br><br>北京时间2023-03-30T00:49:20Z<br>RT @MinZhuBiSheng: @EndGFW2 拆牆直搗邪共死穴，大家加油。<br><br><br>
