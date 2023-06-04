@@ -6,4 +6,5 @@
 
 台湾当前的政商大佬们，许多是三四十年前坐过独裁者的黑牢。相信王律前途光明！请墙内墙外一起来 #拆墙 ，先来打破中共的信息封锁。<br><br><br>北京时间2023-05-18T14:18:50Z<br>【台灣大記者黃清龍：若能拆毁防火牆 · 中共就垮台了】Senior journali in Taiwan Mr. HUANG Ching-Lung:  #GreatFirewall ban can end CCP 
 
- 當前提拆毀互聯網防火牆富有歷史意義，大家應都來 #拆牆。因牆阻隔，外國資訊進不去中國，中共卻可以向世界散播信息，形成資訊流不對稱。#BanGFW #拆牆運動 https://t.co/n4DKGa8Z3x<br><img src='/temp/video/2023/u-Month-5/h-Day-18/BanGFW2/1659081087128141826_0.jpg' width='450' height='500'><br><br>
+ 當前提拆毀互聯網防火牆富有歷史意義，大家應都來 #拆牆。因牆阻隔，外國資訊進不去中國，中共卻可以向世界散播信息，形成資訊流不對稱。#BanGFW #拆牆運動 https://t.co/n4DKGa8Z3x<br><img src='/temp/video/2023/u-Month-5/h-Day-18/BanGFW2/1659081087128141826_0.jpg' width='450' height='500'><br><br>北京时间2023-05-18T12:30:32Z<br>RT @Ban_GFW: 我们14亿中国人谴责中共并坚定支持乌克兰，尊重加德日芬等国驻华使馆在官邸张贴挺乌标语的权利 #BanGFW
+We, 1.4 billion Chinese always #StandWithUkraine️  &amp; respect lawful righ…<br><br><br>
