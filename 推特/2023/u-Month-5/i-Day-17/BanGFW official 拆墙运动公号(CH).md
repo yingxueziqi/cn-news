@@ -8,4 +8,8 @@ We need a head for 2259 Project, u don't have to make public appear…<br><br><b
 #恶人榜   #一人一推 #拆墙运动 #BanGFW #GreatFirewall
 https://t.co/01XD5m40OX https://t.co/GzP2JqH5bb<br><img src='/temp/image/2023/u-Month-5/1658717036535754752_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658717036535754752_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658717036535754752_2.jpg' width='450' height='500'><br><br>北京时间2023-05-17T13:13:55Z<br>业内码农：中共每年花100亿美元维护互联网防火墙 · 严望佳、云晓春、韩伟力3博士应坐牢
 Chinese coders: CCP spends 10 billion USD to maintain #GreatFirewall to block Google Youtube &amp; other 310,000 websites, Dr.Jane YAN ,Dr. YUN Xiaochun, Dr.HAN Weili shd be jailed
-#恶人榜 #BanGFW #拆墙 https://t.co/pzMwzlql3u<br><img src='/temp/image/2023/u-Month-5/1658702365841833984_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_3.jpg' width='450' height='500'><br><br>
+#恶人榜 #BanGFW #拆墙 https://t.co/pzMwzlql3u<br><img src='/temp/image/2023/u-Month-5/1658702365841833984_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658702365841833984_3.jpg' width='450' height='500'><br><br>北京时间2023-05-17T12:33:39Z<br>纽约的时政评论家秦鹏 @shijianxingzou 挺 #拆墙运动 ：可在国际法理上挑战中共的“互联网主权”
+NY-based Chinese commentator Mr. QIN Peng: #BanGFW Movement can  challenge CCP's ideology of Cyber Sovereignty 
+
+#GreatFireWall #만리방화벽금지 #壁を壊す運動
+Yotube: https://t.co/LDt9uhHGdh https://t.co/jzPoNqxq5d<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658692229484154886_0.jpg' width='450' height='500'><br><br>
