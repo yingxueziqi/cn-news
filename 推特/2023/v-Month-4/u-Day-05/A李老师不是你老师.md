@@ -1,0 +1,5 @@
+北京时间2023-04-05T18:35:13Z<br>中国电科今天发文，称加班员工非集团公司员工。
+引发网友对“编制”和“非编制”的讨论
+有网友说“中国的劳动法形同虚设”
+还有网友说“我们都是被工会抛弃的编制外人员” https://t.co/dYLKrG9BqI<br><img src='/temp/image/2023/v-Month-4/1643562931001458690_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_3.jpg' width='450' height='500'><br><br>北京时间2023-04-05T18:26:57Z<br>网友投稿
+4月5日 重庆鱼洞附近俩男子当街互殴其中一男子持刀捅另一名男子数刀脖颈 具体起因不详 https://t.co/6Il19gzNl2<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643560852128243713_0.jpg' width='450' height='500'><br><br>
