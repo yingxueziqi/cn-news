@@ -15,4 +15,4 @@ https://t.co/BsXjbYT44z<br><br><br>北京时间2022-12-16T14:43:35Z<br>RT @Kamed
 
 インドへ行こうと思ったのは中国、東南アジアと地続きだからです。ユニクロはどこにでも行くんですよ。インドだけに行くわけではなく、地球上のどこへでも行く。…<br><br><br>北京时间2022-12-16T13:57:36Z<br>「脱中国」加速で、インドへの「直接投資」増加に期待か 三井住友DSリポート(Merkmal)
 #Yahooニュース
-https://t.co/MmrmFkITwB<br><br><br>
+https://t.co/MmrmFkITwB<br><br><br>北京时间2022-12-16T12:59:19Z<br>RT @detikcom: Mobil listrik Wuling Air ev diakabrkan bakal dijual di China. Akankah mobil itu dikirim dari pabrik Wuling di kawasan Cikaran…<br><br><br>
