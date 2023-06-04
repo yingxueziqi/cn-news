@@ -1,0 +1,2 @@
+北京时间2023-04-25T19:22:44Z<br>RT @Ban_GFW: 乔鑫鑫谈 #拆墙运动 的组织建设和资金募集：欢迎你复制已有的开源文案，在各国组建拆墙基金会、拆墙政党，公开透明地获得各种民主资金。
+Qiao Xinxin shares his views on team management and funds ra…<br><br><br>北京时间2023-04-25T10:39:59Z<br>RT @realcaixia: 拆墙需要大家共同努力💪。<br><br><br>
