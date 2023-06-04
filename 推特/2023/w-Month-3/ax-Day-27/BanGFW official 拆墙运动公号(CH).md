@@ -14,4 +14,5 @@ https://t.co/rfLyoYPpPR<br><br><br>北京时间2023-03-27T18:27:43Z<br>「中推
 截止今天全球共有166位推友登记在册
 ‘编程随想’被中共判刑七年。无数网友在网上表示曾受其博文启蒙。
 这是中共当局不惜一切手段压制异议人士的又一例证。
-值得注意的是，中共政府代表继续…<br><br><br>
+值得注意的是，中共政府代表继续…<br><br><br>北京时间2023-03-27T00:43:45Z<br>RT @wangqingpeng1: 支持王兆清的提议：中共政府操纵的在海外宣传中国共产党是违法犯罪行为！
+Propagating communism is a crime - Sign the Petition! https://t.co/boM9VzLoOq via @Ch…<br><br><br>
