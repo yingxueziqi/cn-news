@@ -6,4 +6,6 @@ It has blocked Google, Twitter &amp; other 310,000 websites, fo…<br><br><br>�
 
 台湾作为中文区民主模范生，互联网和护照直通世界，依然还顶着China的招牌，天天遭受中共威胁。让我们就去总统府、国防部、陆委会等处陈情，推广不增财政开支 #拆墙 法。邮件模板请见本运动谷歌博客
 #Mi…<br><br><br>北京时间2023-04-07T14:10:51Z<br>RT @EndGFW2: 早日拆毁中共的互联网防火墙，结束14亿人对墙外66亿人的盲目仇视，通向未来的航班上，才会有中国的座位
-#拆墙 #BanGFW #GreatFirewall  #拆墙运动 https://t.co/IYTgXbIGkh<br><img src='/temp/image/2023/v-Month-4/1644221177194487808_0.jpg' width='450' height='500'><br><br>
+#拆墙 #BanGFW #GreatFirewall  #拆墙运动 https://t.co/IYTgXbIGkh<br><img src='/temp/image/2023/v-Month-4/1644221177194487808_0.jpg' width='450' height='500'><br><br>北京时间2023-04-07T14:10:35Z<br>RT @EndGFW2: 【#拆墙运动 满月啦！请快免费下载51页《拆墙运动宝典》】
+
+俺们出生才半个月就引来共军大绞杀，这正是拆墙人的自豪，0成本才能全球野蛮生长，欢迎你也来学着写贴举牌！80亿人拆墙运动研讨会中文部第001场和第002场都要开始，请都来吐槽中共防火墙那些事儿…<br><br><br>
