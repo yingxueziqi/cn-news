@@ -15,4 +15,6 @@ NY-based Chinese commentator Mr. QIN Peng: #BanGFW Movement can  challenge CCP's
 Yotube: https://t.co/LDt9uhHGdh https://t.co/jzPoNqxq5d<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658692229484154886_0.jpg' width='450' height='500'><br><br>北京时间2023-05-17T11:33:42Z<br>【擒贼先擒王 · 防火墙之母（女神）严望佳像过街老鼠一样躲外国记者 CCP's Founding Mother of Great Firewall Ms. YAN Wangjia dare not face @VOANews journalists  】
 
 #拆墙运动 拟把共党最后遮羞布撕掉，让80亿人看清中共天价建互联网防火墙，胁迫10多亿人互相仇视和仇视别国真面目。
-#BanGFW https://t.co/VpsXe1evaN<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658677146003595265_0.jpg' width='450' height='500'><br><br>
+#BanGFW https://t.co/VpsXe1evaN<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658677146003595265_0.jpg' width='450' height='500'><br><br>北京时间2023-05-17T01:08:38Z<br>【中共就是世界第1杀人机器 · 亲共者被东西方追剿的恶梦才刚开始！】  
+
+刘少奇官拜中共最高领导人，都死得不明不白。无论是中共、苏共还是柬共，都以仇恨思想起家，父杀子、妻告夫、生打师都不稀奇，已杀掉上亿人。习家军钱快烧光，爱国华侨、劳动模范、改革先锋都难逃恶梦。少嘴炮，快 #拆墙 吧 ！<br><br><br>
