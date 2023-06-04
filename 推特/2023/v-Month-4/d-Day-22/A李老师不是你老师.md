@@ -1,4 +1,6 @@
 北京时间2023-04-22T23:41:08Z<br>网友投稿
 小红书上一则关于“乡镇公务员”的帖子引发网友讨论。文中作者描述了自己在单位只要有领导过来就被要求端茶倒水洗盘子。
 有网友感叹：千军万马就考去当服务员。 https://t.co/EPoi6RbaEi<br><img src='/temp/image/2023/v-Month-4/1649800510067687425_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649800510067687425_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649800510067687425_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649800510067687425_3.jpg' width='450' height='500'><br><br>北京时间2023-04-22T19:52:58Z<br>之后两只球卡住了后面的中奖号码球。
-以及当日的开奖信息 https://t.co/IWyHAnqaHv<br><img src='/temp/image/2023/v-Month-4/1649743091694288897_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649743091694288897_1.jpg' width='450' height='500'><br><br>
+以及当日的开奖信息 https://t.co/IWyHAnqaHv<br><img src='/temp/image/2023/v-Month-4/1649743091694288897_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649743091694288897_1.jpg' width='450' height='500'><br><br>北京时间2023-04-22T19:51:04Z<br>网友投稿
+4月12日，福建体彩31选7第092期发生了意外。
+期间，第四颗中奖号码球01疑似被吸附在轨道上无法动弹，并吸附住了后续的中奖号码球05。 https://t.co/WyyfJBh8KT<br><img src='/temp/video/2023/v-Month-4/d-Day-22/whyyoutouzhele/1649742615405789185_0.jpg' width='450' height='500'><br><br>
