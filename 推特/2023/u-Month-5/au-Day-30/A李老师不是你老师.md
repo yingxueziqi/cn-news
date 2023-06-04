@@ -8,4 +8,5 @@
 5月30日，北京。网友发布视频，飞机起飞前一男子以照顾师傅为由滞留商务舱，并与空乘人员发生争吵。 https://t.co/IkoBiSIahK<br><img src='/temp/video/2023/u-Month-5/au-Day-30/whyyoutouzhele/1663502058081624065_0.jpg' width='450' height='500'><br><br>北京时间2023-05-30T19:05:11Z<br>后续补充
 据北京青年报报道，该校工作人员称事情仍在调查中，其余八名室友保本传言不实。 https://t.co/G1Ighd3k6y<br><img src='/temp/image/2023/u-Month-5/1663501806062764033_0.jpg' width='450' height='500'><br><br>北京时间2023-05-30T18:14:11Z<br>网友投稿
 5月30日，北京。
-有网友路过四通桥，发现四通桥的路牌已经被从桥上拆除了。 https://t.co/WwLSvKiZvu<br><img src='/temp/image/2023/u-Month-5/1663488970267787264_0.jpg' width='450' height='500'><br><br>
+有网友路过四通桥，发现四通桥的路牌已经被从桥上拆除了。 https://t.co/WwLSvKiZvu<br><img src='/temp/image/2023/u-Month-5/1663488970267787264_0.jpg' width='450' height='500'><br><br>北京时间2023-05-30T18:01:51Z<br>网友投稿
+5月30日，一则招聘信息在建筑群内疯传，某地产广告公司招员工，要求最好能接受4个月左右的工资拖欠。 https://t.co/aNOv5RT4pr<br><img src='/temp/image/2023/u-Month-5/1663485868559015936_0.jpg' width='450' height='500'><br><br>
