@@ -1,1 +1,3 @@
-北京时间2023-04-19T20:29:00Z<br>网友补充，群众制伏驾驶员的画面 https://t.co/p2s5CbwOxT<br><img src='/temp/video/2023/v-Month-4/g-Day-19/whyyoutouzhele/1648664996643995649_0.jpg' width='450' height='500'><br><br>
+北京时间2023-04-19T20:29:00Z<br>网友补充，群众制伏驾驶员的画面 https://t.co/p2s5CbwOxT<br><img src='/temp/video/2023/v-Month-4/g-Day-19/whyyoutouzhele/1648664996643995649_0.jpg' width='450' height='500'><br><br>北京时间2023-04-19T20:18:42Z<br>网友投稿
+4月19日上午，山东省泗水县 
+一辆大卡车突然失控撞向对面的卡车，据投稿人描述，事故造成13人死亡。 https://t.co/PfaBLpTO2u<br><img src='/temp/video/2023/v-Month-4/g-Day-19/whyyoutouzhele/1648662406195732482_0.jpg' width='450' height='500'><br><br>
