@@ -12,4 +12,7 @@ Chinese coders: CCP spends 10 billion USD to maintain #GreatFirewall to block Go
 NY-based Chinese commentator Mr. QIN Peng: #BanGFW Movement can  challenge CCP's ideology of Cyber Sovereignty 
 
 #GreatFireWall #만리방화벽금지 #壁を壊す運動
-Yotube: https://t.co/LDt9uhHGdh https://t.co/jzPoNqxq5d<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658692229484154886_0.jpg' width='450' height='500'><br><br>
+Yotube: https://t.co/LDt9uhHGdh https://t.co/jzPoNqxq5d<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658692229484154886_0.jpg' width='450' height='500'><br><br>北京时间2023-05-17T11:33:42Z<br>【擒贼先擒王 · 防火墙之母（女神）严望佳像过街老鼠一样躲外国记者 CCP's Founding Mother of Great Firewall Ms. YAN Wangjia dare not face @VOANews journalists  】
+
+#拆墙运动 拟把共党最后遮羞布撕掉，让80亿人看清中共天价建互联网防火墙，胁迫10多亿人互相仇视和仇视别国真面目。
+#BanGFW https://t.co/VpsXe1evaN<br><img src='/temp/video/2023/u-Month-5/i-Day-17/BanGFW2/1658677146003595265_0.jpg' width='450' height='500'><br><br>
