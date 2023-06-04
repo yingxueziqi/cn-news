@@ -11,4 +11,9 @@
 中国军舰在苏丹撤侨行动现场。
 根据有关消息，截至目前已有1100多名中国人从苏丹安全撤离。 https://t.co/uGTTlxE43j<br><img src='/temp/video/2023/v-Month-4/ax-Day-27/whyyoutouzhele/1651379323968925699_0.jpg' width='450' height='500'><br><br>北京时间2023-04-27T08:01:06Z<br>RT @LauraHarth: 非常及时： 欧洲议会成员呼吁欧盟对外国干涉采取协调战略，包括呼吁 "调查据称在[欧洲各国]所设的[中国]警务站，并采取协调行动打击与中国统战部在欧洲有关的任何非法活动。"
 
-@SafeguardDefend @ipacglobal https:/…<br><br><br>
+@SafeguardDefend @ipacglobal https:/…<br><br><br>北京时间2023-04-27T06:40:05Z<br>本来觉得如此低劣的谣言实在没有辟谣的必要
+但是没想到还是会有人相信，真的不堪其扰。
+只能在此占用大家的时间了。
+这件事其实很简单。
+第一，如果我向投稿人收取费用，那么必然不会等到今天才被人揭发。
+第二，我每天处理那么多投稿，如果可以以此收钱，那我在出事的时候就不用募捐要饭了。… https://t.co/ldU6avv6wW https://t.co/DBmAoig5xG<br><img src='/temp/image/2023/v-Month-4/1651355494391463938_0.jpg' width='450' height='500'><br><br>
