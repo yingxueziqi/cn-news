@@ -5,4 +5,4 @@
 世界第30周年 #新闻自由日 前1天，凌华湛@hualing04177805 及其好友在水坝广场，要求立即释放张展、库尔班·马木提等记者，要求各国祭出禁墙令，让14亿中国人都用上Google、Twitter、Youtube等，终结无休止的中外冲突。#BanGFW<br><br><br>北京时间2023-05-03T17:54:36Z<br>2023年世界新聞自由指數，台灣排名從去年的第38升至第35；中國名次暴跌排名倒數第2，僅優於北韓，是史上最差。 
 #BanGFW #GreatFirewall #WPFD2023 #防火牆
 #拆牆運動
-https://t.co/jkAmVfAwm0<br><br><br>
+https://t.co/jkAmVfAwm0<br><br><br>北京时间2023-05-03T15:15:09Z<br>RT @azukiglg: 「チャイナ・グレート・ファイアウォールを破ろう」広がると…中国、家族を人質に脅迫 https://t.co/rNxzxRnc5t<br><br><br>
