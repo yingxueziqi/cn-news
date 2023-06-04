@@ -7,4 +7,6 @@
 一商贩因为城管要拖走他的板栗车，在大街上脱光衣服抗议。 https://t.co/ydeW4OoGhs<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643554565726281728_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T17:51:16Z<br>后续补充
 死者为北京商贸学校学生，北京商贸学校针对事件进行了说明 https://t.co/gN3tIURAZY<br><img src='/temp/image/2023/v-Month-4/1643551869417975810_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T08:46:28Z<br>网友投稿
 刚刚，北京工人体育馆附近发生了一起杀人案。
-一群青年疑似因醉酒后产生矛盾扭打在一起。争执中，一白衣男子手持碎酒瓶捅破了一蓝衣男子的喉咙（14秒处），造成蓝衣男子死亡。 https://t.co/HCZL6mO1gY<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643414766512160769_0.jpg' width='450' height='500'><br><br>
+一群青年疑似因醉酒后产生矛盾扭打在一起。争执中，一白衣男子手持碎酒瓶捅破了一蓝衣男子的喉咙（14秒处），造成蓝衣男子死亡。 https://t.co/HCZL6mO1gY<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643414766512160769_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T08:02:50Z<br>网友投稿
+北京北京中关村信息路上地五街路口附近
+疑似一名程序员在给ChatGPT烧纸。 https://t.co/Lux8ySwrzV<br><img src='/temp/image/2023/v-Month-4/1643403787699101698_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643403787699101698_1.jpg' width='450' height='500'><br><br>
