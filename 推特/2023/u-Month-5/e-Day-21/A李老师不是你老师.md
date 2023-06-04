@@ -12,4 +12,6 @@
 原来中国的社保卡分为四种颜色 https://t.co/71lGXy7ZPz<br><img src='/temp/image/2023/u-Month-5/1660288984906444801_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660288984906444801_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660288984906444801_2.jpg' width='450' height='500'><br><br>北京时间2023-05-21T21:42:52Z<br>网友投稿
 5月15日，河南省三门峡市
 34名教师宣布绝食抗议。
-理由是四年来每天高强度工作，但是至今编制没有落实，没有合同没有工资没有社保没有公积金，多次向主管部门反映未果。 https://t.co/InFkDkTMfQ<br><img src='/temp/image/2023/u-Month-5/1660279998685519872_0.jpg' width='450' height='500'><br><br>
+理由是四年来每天高强度工作，但是至今编制没有落实，没有合同没有工资没有社保没有公积金，多次向主管部门反映未果。 https://t.co/InFkDkTMfQ<br><img src='/temp/image/2023/u-Month-5/1660279998685519872_0.jpg' width='450' height='500'><br><br>北京时间2023-05-21T19:11:35Z<br>网友投稿
+因胡锡进为笑果公司和House发声，被大量网友批评举报。
+目前有今日头条网友贴出举报结果：胡锡进的账号已经被重点监控。 https://t.co/Pyz233qcVu<br><img src='/temp/image/2023/u-Month-5/1660241923842404353_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660241923842404353_1.jpg' width='450' height='500'><br><br>
