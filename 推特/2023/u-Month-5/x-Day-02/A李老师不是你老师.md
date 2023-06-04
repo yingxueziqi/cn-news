@@ -12,4 +12,6 @@
 有网友认为这名道士穿着的形制不对，是日本间谍派出来探路抹黑淄博的 https://t.co/zKI41iWoxu<br><img src='/temp/image/2023/u-Month-5/1653368754951139340_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653368754951139340_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653368754951139340_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653368754951139340_3.jpg' width='450' height='500'><br><br>北京时间2023-05-02T19:55:17Z<br>网友投稿
 近日，网传山东淄博一男子穿道士服被警察拦在景区外。
 警察表示“你不能穿成这样，我们领导说了。”
-周围人解释这不是日本衣服，是道教衣服。 https://t.co/RIByzXGgVe<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653367553924759552_0.jpg' width='450' height='500'><br><br>
+周围人解释这不是日本衣服，是道教衣服。 https://t.co/RIByzXGgVe<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653367553924759552_0.jpg' width='450' height='500'><br><br>北京时间2023-05-02T01:06:06Z<br>网友投稿
+5月1日晚，广东省东莞市厚街万达广场
+因为万达方面突然把正在进行中的室外美食节商户的电关停了，导致部分商户将垃圾倾倒在万达广场1号大门口，随后警方将当事人带走 https://t.co/Azh1LCBYtm<br><img src='/temp/image/2023/u-Month-5/1653083385839984641_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653083385839984641_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653083385839984641_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653083385839984641_3.jpg' width='450' height='500'><br><br>
