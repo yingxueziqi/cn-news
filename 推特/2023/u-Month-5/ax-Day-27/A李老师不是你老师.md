@@ -9,4 +9,5 @@ https://t.co/6uCMvirjQE<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyou
 武警暂时撤离退后，民众进入清真寺并拆除了脚手架。 https://t.co/GWTgUHWIOa<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662341944377311234_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:56:40Z<br>网友投稿
 5月27日上午，云南省玉溪市通海县纳家营清真寺外，当地穆斯林与警察发生激烈冲突。
 网传冲突原因与政府打算强拆清真寺有关。 https://t.co/Dr34EI82Wm<br><img src='/temp/video/2023/u-Month-5/ax-Day-27/whyyoutouzhele/1662336999838167040_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:46:29Z<br>网友投稿
-5月26日，河北一派出所对烟花爆竹进行取样鉴定时发生爆炸，4人死亡2人失联，5人正在救治。 https://t.co/IViTE3ODwD<br><img src='/temp/image/2023/u-Month-5/1662334436573151232_0.jpg' width='450' height='500'><br><br>
+5月26日，河北一派出所对烟花爆竹进行取样鉴定时发生爆炸，4人死亡2人失联，5人正在救治。 https://t.co/IViTE3ODwD<br><img src='/temp/image/2023/u-Month-5/1662334436573151232_0.jpg' width='450' height='500'><br><br>北京时间2023-05-27T13:42:22Z<br>5月27日，网信中国发布"清朗行动"阶段性成果
+截至5月22日累计清理违规信息141.09万条，违规账号92.76万个，永久关闭账号6.66万个。 https://t.co/nYoDBiYAFj<br><img src='/temp/image/2023/u-Month-5/1662333403033640962_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662333403033640962_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662333403033640962_2.jpg' width='450' height='500'><br><br>
