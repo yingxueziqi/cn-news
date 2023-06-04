@@ -5,4 +5,6 @@
 毒害性比中共 TikTok 高 10,000 倍，
 GFW迫使 14 億中國人仇恨西方和民主，
 已經嚴重威脅各國人民的歲靜生活，
-全球公…<br><br><br>
+全球公…<br><br><br>北京时间2023-04-02T04:12:31Z<br>RT @Ban_GFW: 【A great shame that 8 billion people forget to protest against CCP Internet Berlin Wall】
+
+We used 10 keywords in Chinese, Engl…<br><br><br>
