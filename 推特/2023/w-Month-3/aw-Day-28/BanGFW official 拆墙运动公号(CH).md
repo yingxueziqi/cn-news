@@ -21,4 +21,6 @@
 搞民运也不必避讳谈钱，民主就是顺应全球自由资本主义大潮的优质生活方式，民主化后的中国，才会人尽其才、物尽其用、地尽其利、货尽其通！<br><br><br>北京时间2023-03-28T13:12:20Z<br>RT @Ban_GFW: 誠邀台積電、聯電等台企參與拆除禁止中共互聯網防火牆
 Welcome Taiwan tycoons TSMC &amp; UMC to tear down &amp; ban CCP Internet Berlin Wall 
 @iingwen @MOFA_Taiwan…<br><br><br>北京时间2023-03-28T12:34:43Z<br>RT @Ban_GFW: Open letter to invite tech tycoons like ChatGPT Google Facebook Twitter to help ban &amp; tear down CCP Internet Berlin Wall
-诚邀Cha…<br><br><br>
+诚邀Cha…<br><br><br>北京时间2023-03-28T11:03:56Z<br>「#拆墙运动 改名的最大动机：去英文圈蹭流量」
+
+我们写贴时不妨将 #bantiktok #bangfw 经常并排，提高我们曝光率。当然日文汉字和繁体中文圈，可以适当增加“禁防火牆運動”，但一般就用“禁防火墙”，也基本不会影响意思。总之，我们主推“ #禁防火墙”和“ #BanGFW”，名称确定后，就会多用此2词文宣 https://t.co/ox4amUlo79<br><img src='/temp/image/2023/w-Month-3/1640550258286657538_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640550258286657538_1.jpg' width='450' height='500'><br><br>
