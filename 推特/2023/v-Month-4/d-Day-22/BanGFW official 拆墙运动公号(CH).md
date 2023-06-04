@@ -6,4 +6,8 @@ I'll do my utmost to make more key points clear.
 
 #BanGFW #拆墙 https://t.co/TVBivYBamD<br><img src='/temp/image/2023/v-Month-4/1649644179193208832_0.jpg' width='450' height='500'><br><br>北京时间2023-04-22T12:49:40Z<br>RT @EndGFW2: 「乔鑫鑫：为何我要领导拆墙运动？」
 
-原只想做小教书匠，但中共逼人太甚。各大语言圈里，中文圈互相仇视和封闭堪称世界之最，互联网防火墙是主犯。2月我回湖南时，美媒NPR和墙内仇美反日攻台形成巨大对比，纽约城市大学夏明教授 @XiaBamboohermit…<br><br><br>
+原只想做小教书匠，但中共逼人太甚。各大语言圈里，中文圈互相仇视和封闭堪称世界之最，互联网防火墙是主犯。2月我回湖南时，美媒NPR和墙内仇美反日攻台形成巨大对比，纽约城市大学夏明教授 @XiaBamboohermit…<br><br><br>北京时间2023-04-22T01:59:00Z<br>RT @EndGFW2: 「拆墙运动聊天会之乔鑫鑫专场」
+
+时间：4月21日北京时间晚9点/ 洛杉矶时间早6点
+内容：包括但不限于成长经历、旅居东南亚10年记、拆墙运动等等
+https://t.co/kmaOprcH0G<br><br><br>
