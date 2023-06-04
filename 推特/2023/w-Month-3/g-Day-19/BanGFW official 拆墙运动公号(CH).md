@@ -22,4 +22,4 @@ https://t.co/S33sgqf2S0<br><br><br>北京时间2023-03-19T16:54:45Z<br>RT @AnnaW
 引发海量误解和冲突，触犯反人类大罪！
 应抬到国际刑事法院公审并拆…<br><br><br>北京时间2023-03-19T16:11:57Z<br>【拆墙运动公号主号遭到永久封禁通知】
 
-@EndGFW 已经遭封禁，目前正申请索回。现启用备用号 @EndGFW2 。也恳请你将公号信息复制重发在你推特上，以防拆墙信息突然消失。我们的对手是个凶悍的国家机器，并从上次Change签名屡次受挫，就能感觉其在颤抖，所以此次小挫折也在预料之中。Come on, everyone! https://t.co/3y4JNlbZtQ<br><img src='/temp/image/2023/w-Month-3/1637366282994741248_0.jpg' width='450' height='500'><br><br>
+@EndGFW 已经遭封禁，目前正申请索回。现启用备用号 @EndGFW2 。也恳请你将公号信息复制重发在你推特上，以防拆墙信息突然消失。我们的对手是个凶悍的国家机器，并从上次Change签名屡次受挫，就能感觉其在颤抖，所以此次小挫折也在预料之中。Come on, everyone! https://t.co/3y4JNlbZtQ<br><img src='/temp/image/2023/w-Month-3/1637366282994741248_0.jpg' width='450' height='500'><br><br>北京时间2023-03-19T02:10:33Z<br>老王是个狠角色，就这样在欧洲迎接到访的老习！<br><br><br>
