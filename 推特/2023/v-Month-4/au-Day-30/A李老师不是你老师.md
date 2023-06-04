@@ -1,0 +1,4 @@
+北京时间2023-04-30T21:57:31Z<br>网友投稿
+合肥某高校校园网今天开始限制无线连接方式访问国外地址。
+有学生登陆Steam玩游戏导致网关被封，在询问老师后，老师表示需要插网线才可以玩国外游戏。 https://t.co/MmE7GhjAGc<br><img src='/temp/image/2023/v-Month-4/1652673540234125320_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1652673540234125320_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1652673540234125320_2.jpg' width='450' height='500'><br><br>北京时间2023-04-30T21:51:19Z<br>突发！
+4月30日晚十点左右，广西省柳州市发生砍人事件，目前原因未知 https://t.co/7vfqrwXoFR https://t.co/vsYLOzlEug<br><img src='/temp/video/2023/v-Month-4/au-Day-30/whyyoutouzhele/1652671979843907586_0.jpg' width='450' height='500'><br><br>
