@@ -3,4 +3,4 @@ Qiao Xinxin shares his views on team management and funds ra…<br><br><br>北�
 
 乔今年曾在今年1月份去老挝山区学校支教，2月份又冒险回中国后发现，中共防火墙持续挑动14亿人仇美反日攻台，中国人绝对是世界上活得最累民族。
 #BanGFW
-https://t.co/4SmyUT0loa<br><br><br>
+https://t.co/4SmyUT0loa<br><br><br>北京时间2023-04-25T02:29:38Z<br>RT @Ban_GFW: Great thanks to British consul Mr.Chris Cantrell,they already read Qiao Xinxin's fb post 2 days ago, praised our work to tear…<br><br><br>
