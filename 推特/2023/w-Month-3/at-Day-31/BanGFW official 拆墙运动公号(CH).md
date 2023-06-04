@@ -22,4 +22,8 @@ Following agreements on special services interac…<br><br><br>北京时间2023-
 确实是重点
 我相信，所有从事推动中国自由人权民主宪政进程的人，都会在拆除中共网络柏林墙的努力中一起尽力🙏🌹<br><br><br>北京时间2023-03-31T08:29:32Z<br>RT @sanchuanzhoumu: @zaobaosg 拆墙吧<br><br><br>北京时间2023-03-31T02:41:57Z<br>RT @Ban_GFW: 【SOS: Beijing are deploying lots of police to suppress #BanGFW Movement】
 
-Vice minister of CCP police has ordered skilled cybe…<br><br><br>
+Vice minister of CCP police has ordered skilled cybe…<br><br><br>北京时间2023-03-31T02:14:40Z<br>RT @EndGFW2: 【SOS: 公安部下令与 #拆墙运动 进行大会战· 吓尿了快来救救俺们】
+
+刚从内线获得通知，公安局副部长近日已经下令，组织各省骨干网警进京与本运动进行1个月专项会战。
+
+#拆墙 人将请 #恶人榜 战友，日夜不停问候公安部11局，再邀请国际媒体采访，还…<br><br><br>
