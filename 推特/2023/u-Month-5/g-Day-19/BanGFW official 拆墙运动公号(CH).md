@@ -11,4 +11,8 @@
 
 記錄片：https://t.co/44vtuiEaJX https://t.co/HGzMRM9g0h<br><img src='/temp/video/2023/u-Month-5/g-Day-19/BanGFW2/1659556716856639488_0.jpg' width='450' height='500'><br><br>北京时间2023-05-19T15:54:37Z<br>RT @TommyPang10: 今天中国人的思想境界，对世界的认知，罪魁祸首就是“长城防火墙”30年来，过滤信息洗脑造成全民的愚昧无知。
 
-推倒网墙，是启蒙全民对民主自由认知的第一步，也是最重要的一步！<br><br><br>
+推倒网墙，是启蒙全民对民主自由认知的第一步，也是最重要的一步！<br><br><br>北京时间2023-05-19T14:35:47Z<br>「招聘全球顶级律所向美国索赔70万亿美元」
+
+律所核心合伙人必须懂中英双语，情感上同情中国的人权事业，在美国有10年以上大型人权类跨国索赔案执业经验，负责代理14亿中国人向美国白宫和企业索赔。
+邮箱：bangfw@protonmail.com
+#BanGFW #拆墙运动 https://t.co/YUFIRv3d4F<br><img src='/temp/image/2023/u-Month-5/1659447741691621376_0.jpg' width='450' height='500'><br><br>
