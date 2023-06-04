@@ -3,4 +3,5 @@
 继陈志龙事件被反转之后，网上又再次出现中国电科成员实名举报强制加班，不准请假，不给加班费等情况，称自己多年举报一直没有回应。 https://t.co/8LYkpqsFCR<br><img src='/temp/image/2023/v-Month-4/1644944012095152129_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644944012095152129_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644944012095152129_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644944012095152129_3.jpg' width='450' height='500'><br><br>北京时间2023-04-09T13:52:45Z<br>网友投稿
 九派新闻消息，吉林省榆树市畜牧业管理局一科长涉嫌强奸和猥亵小学女生。
 同事称，其妻子为小学老师，听说班里有几个农村学生寄宿在他家。
-目前，该名科长已经被公安机关刑事拘留。 https://t.co/EaTKcTV5ND<br><img src='/temp/image/2023/v-Month-4/1644941397856845824_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644941397856845824_1.jpg' width='450' height='500'><br><br>
+目前，该名科长已经被公安机关刑事拘留。 https://t.co/EaTKcTV5ND<br><img src='/temp/image/2023/v-Month-4/1644941397856845824_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644941397856845824_1.jpg' width='450' height='500'><br><br>北京时间2023-04-09T13:47:56Z<br>网友投稿
+4月9日，李庄律师在微博上展示了一种使用牙刷和透明胶带进行刑讯逼供的方法，来自4月8日邢台法庭上的被告人当庭控诉。 https://t.co/LXHgx5GO2u https://t.co/FI9RrxxAbk<br><img src='/temp/video/2023/v-Month-4/q-Day-09/whyyoutouzhele/1644940185841352705_0.jpg' width='450' height='500'><br><br>
