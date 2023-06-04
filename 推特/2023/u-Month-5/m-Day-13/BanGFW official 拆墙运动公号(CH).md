@@ -4,4 +4,7 @@ Interpretation for CCP's mouthpiece Prof. ZHANG Weiwei:  in terms of overseas #B
 墙拆了，境外各媒体会是第一波受益者。
 墙拆了，中国离民主法治就更近了！
 墙拆了，全球就更安全了！
-拆墙！拆墙！拆墙！💪<br><br><br>
+拆墙！拆墙！拆墙！💪<br><br><br>北京时间2023-05-13T12:49:21Z<br>【大记者姜维平评 #拆墙运动：拆墙成功=中共垮台】
+
+姜氏已三次报道本运动，现年68岁，居加拿大，2009年获国际新闻自由奖。1980年代为新华社记者，1995年至2000年曾任香港文汇报驻东北办事处首席代表，因多次报道中共高官丑闻，被重判入狱8年。#BanGFW
+Youtube原出处： https://t.co/qvNfsAeRoT https://t.co/lit4XlFAHL<br><img src='/temp/video/2023/u-Month-5/m-Day-13/BanGFW2/1657246628766679040_0.jpg' width='450' height='500'><br><br>
