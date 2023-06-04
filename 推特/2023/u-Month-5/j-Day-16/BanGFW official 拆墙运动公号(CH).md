@@ -8,4 +8,4 @@
  #拆墙运动 #BanGFW #一人一推  #恶人榜 https://t.co/FJ9MQgMc4t<br><img src='/temp/image/2023/u-Month-5/1658337067825520640_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T12:39:38Z<br>【墙内人火烧中共老巢绝招：高空抛洒 #拆墙运动 传单】
 
 有墙内反共人士献计称，若每城有1人就能让各省城管和警察疲于奔命，抓捕起码要三四小时，你可选择最繁华地段的商业中心，提前买好出国的机票或车票，在广州、景洪、珠海、防城港等可先搞起来。
-可编辑打印文本的网址：https://t.co/K1Pv4k0XyW https://t.co/ErsLkTOS2H<br><img src='/temp/image/2023/u-Month-5/1658331346815815681_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658331346815815681_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658331346815815681_2.jpg' width='450' height='500'><br><br>
+可编辑打印文本的网址：https://t.co/K1Pv4k0XyW https://t.co/ErsLkTOS2H<br><img src='/temp/image/2023/u-Month-5/1658331346815815681_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658331346815815681_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658331346815815681_2.jpg' width='450' height='500'><br><br>北京时间2023-05-16T11:39:12Z<br>吴建民先生数十年来为打破中共专制、拆毁中共的互联网防火墙而积极奔走呼号，实为 #拆墙运动 开山鼻祖。 他被迫害和入狱多年，却始终不为中共威逼利诱所动，实为海外华人民运中的一股清流，请大家多多支持！#BanGFW<br><br><br>
