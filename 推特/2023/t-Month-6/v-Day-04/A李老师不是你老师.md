@@ -18,4 +18,5 @@ https://t.co/1oHXMIN82a<br><br><br>北京时间2023-06-04T20:29:43Z<br>现场，
 加拿大大使馆在微博被删除后重新截图又发了一遍 https://t.co/GNlJVRtCxE<br><img src='/temp/image/2023/t-Month-6/1665305317712752640_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665305317712752640_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T15:31:44Z<br>网友投稿
 6月4日，欧盟驻华代表团发文“我们不会忘记。”
 随后评论区被屏蔽。 https://t.co/gb7UedVWaL<br><img src='/temp/image/2023/t-Month-6/1665260029539229697_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665260029539229697_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T15:05:54Z<br>英国驻华大使馆推特发文说明
-https://t.co/feYAcxa0c1<br><br><br>
+https://t.co/feYAcxa0c1<br><br><br>北京时间2023-06-04T14:31:48Z<br>PPS：我后台看见太多了，所以我劝你少发
+你要是觉得我在吓唬你，那我劝你多发。<br><br><br>
