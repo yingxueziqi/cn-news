@@ -4,4 +4,4 @@
 4月29日，北京学通社微信公众号发文《一张白纸》,并配文 “我会记住2022年11月26日，我会记住传媒人的勇气”。
 据悉，北京学通社是北京青年报下属的半官方学联组织，受北青报监管，北青报是北京共青团的报纸。 https://t.co/CbddLD9YCo<br><img src='/temp/image/2023/v-Month-4/1652293745394479104_0.jpg' width='450' height='500'><br><br>北京时间2023-04-29T20:45:36Z<br>网友投稿
 近日“淄博烧烤”爆火后，大量被拐儿童家长赴淄博扩散信息。 https://t.co/u6BB3XUo2Y<br><img src='/temp/video/2023/v-Month-4/av-Day-29/whyyoutouzhele/1652293054538104832_0.jpg' width='450' height='500'><br><br>北京时间2023-04-29T20:16:25Z<br>网友投稿
-河南郑州，路边被废弃的核酸厅 https://t.co/rjCuuJxQX7<br><img src='/temp/image/2023/v-Month-4/1652285709594640384_0.jpg' width='450' height='500'><br><br>
+河南郑州，路边被废弃的核酸厅 https://t.co/rjCuuJxQX7<br><img src='/temp/image/2023/v-Month-4/1652285709594640384_0.jpg' width='450' height='500'><br><br>北京时间2023-04-29T18:42:22Z<br>4月27日，辽宁一大学生用汶川地震攻击成都球迷，被校方通报。根据此前媒体报道，26日，中超联赛第3轮，成都蓉城客场0比0战平大连人。比赛结束后，成都蓉城球员在离场时遭到扔杂物，并被无端辱骂，部分词语带有极端种族主义色彩；成都蓉城队球迷远征军在退场时被围堵，迟迟无法离场，个别成都球迷离场后… https://t.co/M8OAykQFyq https://t.co/ieBRnG2Muy<br><img src='/temp/image/2023/v-Month-4/1652262039119704066_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1652262039119704066_1.jpg' width='450' height='500'><br><br>
