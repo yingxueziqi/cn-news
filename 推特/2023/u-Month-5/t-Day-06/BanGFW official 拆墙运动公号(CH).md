@@ -4,4 +4,5 @@
 感谢新唐人电视台对 #拆墙运动 的大力报道
  #BanGFW #BanGreatFir…<br><br><br>北京时间2023-05-06T10:42:46Z<br>RT @spotlightoncn: The founder of ‘Ban Great Fire Wall’ threatened while out of the country
  
-Qiao Xinxin, the founder of the “Ban Great Fi…<br><br><br>
+Qiao Xinxin, the founder of the “Ban Great Fi…<br><br><br>北京时间2023-05-06T10:42:19Z<br>RT @Ban_GFW: 喜报：乔鑫鑫先生以 #拆墙运动 秘书 身份获英国王室和英国大使邀请、与英联邦50国25亿子民见证查理三世加冕大典。
+Good news: As secretary of #BanGFW team, Mr. Qiao Xinxin gets an inv…<br><br><br>
