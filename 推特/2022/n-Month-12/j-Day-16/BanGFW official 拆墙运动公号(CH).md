@@ -21,4 +21,4 @@ https://t.co/MmrmFkITwB<br><br><br>北京时间2022-12-16T12:59:19Z<br>RT @detik
 世界一の電池メーカー中国CATLも韓国LGも工場をインドネ…<br><br><br>北京时间2022-12-16T12:57:23Z<br>RT @drei_Ritter: @TakehikoTakash1 ひと月前に日経でも取り上げているEV普及。
 インドネシアだけに限らず東南アジア諸国はこの傾向。
 シェア争いフェーズ
-https://t.co/sscK5a0J1T<br><br><br>
+https://t.co/sscK5a0J1T<br><br><br>北京时间2022-12-16T04:32:58Z<br>RT @ThaiNewsReports: 🇹🇭 BANGKOK POST: Outbound tourism from China is expected to restart during the Chinese New Year in late January 2023 a…<br><br><br>
