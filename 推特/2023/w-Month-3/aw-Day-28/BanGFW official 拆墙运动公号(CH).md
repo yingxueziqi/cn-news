@@ -23,4 +23,6 @@ Welcome Taiwan tycoons TSMC &amp; UMC to tear down &amp; ban CCP Internet Berlin
 @iingwen @MOFA_Taiwan…<br><br><br>北京时间2023-03-28T12:34:43Z<br>RT @Ban_GFW: Open letter to invite tech tycoons like ChatGPT Google Facebook Twitter to help ban &amp; tear down CCP Internet Berlin Wall
 诚邀Cha…<br><br><br>北京时间2023-03-28T11:03:56Z<br>「#拆墙运动 改名的最大动机：去英文圈蹭流量」
 
-我们写贴时不妨将 #bantiktok #bangfw 经常并排，提高我们曝光率。当然日文汉字和繁体中文圈，可以适当增加“禁防火牆運動”，但一般就用“禁防火墙”，也基本不会影响意思。总之，我们主推“ #禁防火墙”和“ #BanGFW”，名称确定后，就会多用此2词文宣 https://t.co/ox4amUlo79<br><img src='/temp/image/2023/w-Month-3/1640550258286657538_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640550258286657538_1.jpg' width='450' height='500'><br><br>
+我们写贴时不妨将 #bantiktok #bangfw 经常并排，提高我们曝光率。当然日文汉字和繁体中文圈，可以适当增加“禁防火牆運動”，但一般就用“禁防火墙”，也基本不会影响意思。总之，我们主推“ #禁防火墙”和“ #BanGFW”，名称确定后，就会多用此2词文宣 https://t.co/ox4amUlo79<br><img src='/temp/image/2023/w-Month-3/1640550258286657538_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640550258286657538_1.jpg' width='450' height='500'><br><br>北京时间2023-03-28T10:50:58Z<br>「禁墙运动将主推2个标签 #禁防火墙 #BanGFW」 
+
+因为大家暂时对“禁墙”的说法不易接受，所以就用全称“禁防火墙”，就语义清晰了，我们最终就是推动各国模仿“禁抖音”而出台“禁墙令”，宣布防火墙犯下危害80亿人利益的滔天大罪，当然还会结合向海牙国际刑事法院起诉。这样，我们的斗争策略也更能秒懂。 https://t.co/3hug7meqVL<br><img src='/temp/image/2023/w-Month-3/1640546995017519104_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640546995017519104_1.jpg' width='450' height='500'><br><br>
