@@ -3,4 +3,5 @@
 If foreign companies want access to its commodities, the refining has to be done domes…<br><br><br>北京时间2022-12-20T18:50:03Z<br>RT @BrianGitt: China tightens its grip on the electric vehicle (EV) supply chain.
 
 China invested $14 billion in Indonesia—the heart of the…<br><br><br>北京时间2022-12-20T13:44:20Z<br>RT @kompascom: Dirut PT Kereta Cepat Indonesia China (KCIC) Dwiyana Slamet Riyadi mengatakan, kereta kerja tersebut berupa lokomotif diesel…<br><br><br>北京时间2022-12-20T08:01:28Z<br>RT @RFA_Chinese: 中国 #印尼 经贸关系近些年虽在深化，但两国有着巨大的意识形态差异。印尼重刑打压 #共产主义 已近50年，印尼国会即将通过的新刑法，对宣传共产主义和马列主义者可判刑4~15年。
-https://t.co/KILTALRQlt<br><br><br>
+https://t.co/KILTALRQlt<br><br><br>北京时间2022-12-20T07:52:26Z<br>RT @ZhentingLiu: #ฟอกตัวเองด้วยการลาออก
+"พล ต ต ปิยะพันธ์ ปิงเมือง"ประธานปปง. เจอฤทธิ์อาเฮียชูวิทย์ ถูกชี้เป้าพัวพันคดีทุนจีนสีเทา"ตู้ห้าว"…<br><br><br>
