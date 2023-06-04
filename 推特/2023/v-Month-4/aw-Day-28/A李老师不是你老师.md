@@ -1,0 +1,4 @@
+北京时间2023-04-28T19:45:54Z<br>网友投稿
+4月28日，中国结束清零政策之后的首个黄金周，铁路上海站迎来今年以来单日最高客流，上海虹桥站宣布当日发往全国各站的车票均已售罄。
+根据国铁集团的预测，今年“五一”期间，全国铁路预计发送旅客1.2亿人次,将超越历史同期最高水平… https://t.co/iMN8JMIb0W https://t.co/CQ6ZmQuYDh<br><img src='/temp/image/2023/v-Month-4/1651915640150556672_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651915640150556672_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651915640150556672_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651915640150556672_3.jpg' width='450' height='500'><br><br>北京时间2023-04-28T18:51:55Z<br>网友投稿
+4月26日，国务院发布通知，广泛动员各类企事业单位、社会组织等募集不少于100万个青年见习岗位。对吸纳就业见习人员的给予见习补贴。 https://t.co/rlEgJSfxC5<br><img src='/temp/image/2023/v-Month-4/1651902054229483520_0.jpg' width='450' height='500'><br><br>
