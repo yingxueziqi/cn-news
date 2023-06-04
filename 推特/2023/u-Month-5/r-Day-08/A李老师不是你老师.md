@@ -1,0 +1,4 @@
+北京时间2023-05-08T22:12:56Z<br>网友投稿
+5月6日，观察者网发布一篇时评称，43.63%的大学生认为“民营经济未来有一天会消亡”。
+然而今天有网友发现，相关文章目前在网上找不到了，均显示被删除。 https://t.co/aQVNryYtQ7<br><img src='/temp/image/2023/u-Month-5/1655576523133403142_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1655576523133403142_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1655576523133403142_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1655576523133403142_3.jpg' width='450' height='500'><br><br>北京时间2023-05-08T20:54:50Z<br>网友投稿
+广州某大学，开始要求全员戴口罩上课。 https://t.co/qBaqxoLxsp<br><img src='/temp/image/2023/u-Month-5/1655556868222091266_0.jpg' width='450' height='500'><br><br>
