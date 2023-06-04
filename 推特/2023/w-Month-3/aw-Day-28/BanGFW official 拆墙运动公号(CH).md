@@ -16,4 +16,6 @@
 #BanTikTok #禁抖音 #禁防火墙 #BanGFW #格雷老师 #中文通<br><br><br>北京时间2023-03-28T17:41:37Z<br>Let's #BanTikTok &amp; #BanGFW now!
 让我们把抖音和防火墙都禁了！
 
-(Lyrics歌词)CCP is world's greatest threat, they want to own our Internet. To spy on us and control our minds, they've banned ours (platforms). Let's respond in kind &amp; #BanTikTok now. 中共就是世界最大威胁 #禁防火墙<br><br><br>北京时间2023-03-28T17:23:48Z<br>RT @mkwitzke: China banned Google, YouTube, TikTok, Instagram, Facebook, Netflix, Snapchat, the NBA, Pinterest, Whatsapp, \Twitter, Dropbox…<br><br><br>北京时间2023-03-28T14:11:01Z<br>RT @qiaoxinxin88: @freelovesky @wangqingpeng1 美国、日本、欧洲的本国法令，可以精准制裁提供墙技术的本国厂商，可以精准制裁下令建造和维护的中共个人和实体的海外资产和入境签证。中共又不掌握核心的墙技术和硬件，而且女子、孩子、票子、粮食、…<br><br><br>
+(Lyrics歌词)CCP is world's greatest threat, they want to own our Internet. To spy on us and control our minds, they've banned ours (platforms). Let's respond in kind &amp; #BanTikTok now. 中共就是世界最大威胁 #禁防火墙<br><br><br>北京时间2023-03-28T17:23:48Z<br>RT @mkwitzke: China banned Google, YouTube, TikTok, Instagram, Facebook, Netflix, Snapchat, the NBA, Pinterest, Whatsapp, \Twitter, Dropbox…<br><br><br>北京时间2023-03-28T14:11:01Z<br>RT @qiaoxinxin88: @freelovesky @wangqingpeng1 美国、日本、欧洲的本国法令，可以精准制裁提供墙技术的本国厂商，可以精准制裁下令建造和维护的中共个人和实体的海外资产和入境签证。中共又不掌握核心的墙技术和硬件，而且女子、孩子、票子、粮食、…<br><br><br>北京时间2023-03-28T13:15:42Z<br>光谈“三观”是不够的，请全球大佬来一起“搞钱”，你还无动于衷吗？上十万亿美元的单一大市场哪里还有第2个？
+
+搞民运也不必避讳谈钱，民主就是顺应全球自由资本主义大潮的优质生活方式，民主化后的中国，才会人尽其才、物尽其用、地尽其利、货尽其通！<br><br><br>
