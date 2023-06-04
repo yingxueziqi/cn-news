@@ -9,4 +9,6 @@
 
 台灣政商界眾多大佬，如施明德、謝長廷、陳菊、陳水扁等，都曾搞過“美麗島雜誌”抗議，坐過独裁者黑牢，後紛紛當選縣市長、議員，各派聯手組建民進黨。倒共涉幾十萬億美元利益，投入必有回報。 #BanGFW #拆牆運動 
 
-記錄片：https://t.co/44vtuiEaJX https://t.co/HGzMRM9g0h<br><img src='/temp/video/2023/u-Month-5/g-Day-19/BanGFW2/1659556716856639488_0.jpg' width='450' height='500'><br><br>
+記錄片：https://t.co/44vtuiEaJX https://t.co/HGzMRM9g0h<br><img src='/temp/video/2023/u-Month-5/g-Day-19/BanGFW2/1659556716856639488_0.jpg' width='450' height='500'><br><br>北京时间2023-05-19T15:54:37Z<br>RT @TommyPang10: 今天中国人的思想境界，对世界的认知，罪魁祸首就是“长城防火墙”30年来，过滤信息洗脑造成全民的愚昧无知。
+
+推倒网墙，是启蒙全民对民主自由认知的第一步，也是最重要的一步！<br><br><br>
