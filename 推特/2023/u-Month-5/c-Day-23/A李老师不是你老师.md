@@ -20,4 +20,4 @@
 “兰州大学到底说了什么？”
 5月23日，兰州大学一名教师在课堂上发表关于抗美援朝的不当言论被学生拍照上传到网上。
 然而令人无语的是，尽管遭到了爱国大V们的口诛笔伐，但是所有讨论相关内容的图片均被和谐。
-1/2 https://t.co/qtp8BroMQA<br><img src='/temp/image/2023/u-Month-5/1660928185008103424_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_3.jpg' width='450' height='500'><br><br>
+1/2 https://t.co/qtp8BroMQA<br><img src='/temp/image/2023/u-Month-5/1660928185008103424_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660928185008103424_3.jpg' width='450' height='500'><br><br>北京时间2023-05-23T02:30:45Z<br>随后当晚，网友们又再次发起了新的“反对崇洋媚外”挑战 https://t.co/8eoXUENF0P<br><img src='/temp/image/2023/u-Month-5/1660714831526199296_0.jpg' width='450' height='500'><br><br>
