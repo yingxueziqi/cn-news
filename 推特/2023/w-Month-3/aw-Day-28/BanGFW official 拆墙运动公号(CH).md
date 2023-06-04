@@ -28,4 +28,6 @@ Welcome Taiwan tycoons TSMC &amp; UMC to tear down &amp; ban CCP Internet Berlin
 因为大家暂时对“禁墙”的说法不易接受，所以就用全称“禁防火墙”，就语义清晰了，我们最终就是推动各国模仿“禁抖音”而出台“禁墙令”，宣布防火墙犯下危害80亿人利益的滔天大罪，当然还会结合向海牙国际刑事法院起诉。这样，我们的斗争策略也更能秒懂。 https://t.co/3hug7meqVL<br><img src='/temp/image/2023/w-Month-3/1640546995017519104_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640546995017519104_1.jpg' width='450' height='500'><br><br>北京时间2023-03-28T04:18:29Z<br>RT @qiaoxinxin88: @KelmanSteve @donmoyn @dchenok @LDDSOG @cscairns 【 Let's #BanTikTok  #BanGFW together】
 Both TikTok &amp; GFW are toys of CCP,…<br><br><br>北京时间2023-03-28T03:33:06Z<br>RT @whitepaper_op: 白纸运动成员提供：墙国洛杉矶领事馆2023年3月26日下午2:30集会抗议：释放吴亚楠老师！停止精神迫害！言论自由新闻自由结社自由！自由终将属于我们所有人！ https://t.co/WKmEcVsXIq<br><img src='/temp/video/2023/w-Month-3/aw-Day-28/BanGFW2/1640436803982487552_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T03:28:08Z<br>RT @LinShengliang: #聲明… https://t.co/JTfC9JsUsO<br><br><br>北京时间2023-03-28T02:12:28Z<br>RT @Ban_GFW: 【 Let's #BanTikTok  #BanGFW together】
 
-Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Internet censo…<br><br><br>
+Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Internet censo…<br><br><br>北京时间2023-03-28T01:39:12Z<br>RT @Ban_GFW: 【中共的抖音有毒？互联网防火墙危害80亿人利益！】
+
+TikTok 和GFW（互联网防火墙）都是中共的玩具，该墙为世界最大的互联网隔离墙，封禁了Google ChatGPT等31万个网站，切断了14亿人与66亿人联系，造成中国境内动不动仇美仇日。让我们…<br><br><br>
