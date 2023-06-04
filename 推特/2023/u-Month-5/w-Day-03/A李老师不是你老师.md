@@ -3,4 +3,4 @@
 https://t.co/T8juMEU50n https://t.co/tJCKajx2fD https://t.co/cs6IvPZSqt<br><img src='/temp/image/2023/u-Month-5/1653750434614460418_0.jpg' width='450' height='500'><br><br>北京时间2023-05-03T20:52:05Z<br>有网友认为，相关视频是在俄罗斯方面发布消息后才开始流传；另有网友评论称普京事发时并不在克里姆林宫，因此对事件的动机与真实性存疑。<br><br><br>北京时间2023-05-03T20:51:41Z<br>突发！约一小时前，俄罗斯方面宣称，两架来自乌克兰的无人机试图袭击普京在克里姆林宫的官邸。
 视频中显示，克里姆林宫的一栋建筑冒起白烟。
 
-https://t.co/ZI8JFOGlHh<br><img src='/temp/video/2023/u-Month-5/w-Day-03/whyyoutouzhele/1653744134933430272_0.jpg' width='450' height='500'><br><br>
+https://t.co/ZI8JFOGlHh<br><img src='/temp/video/2023/u-Month-5/w-Day-03/whyyoutouzhele/1653744134933430272_0.jpg' width='450' height='500'><br><br>北京时间2023-05-03T20:10:16Z<br>后续有网友补充称，该女子的账号显示其为专业的房产从业者，相关视频可能系摆拍 https://t.co/uEEBO6u4j4<br><img src='/temp/image/2023/u-Month-5/1653733710783565824_0.jpg' width='450' height='500'><br><br>
