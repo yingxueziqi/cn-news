@@ -1,3 +1,3 @@
 北京时间2023-05-10T16:50:12Z<br>网友投稿
 四川某书店 https://t.co/XC1MzmEVic<br><img src='/temp/image/2023/u-Month-5/1656220077400662018_0.jpg' width='450' height='500'><br><br>北京时间2023-05-10T16:07:38Z<br>网友投稿
-5月10日，山西省孝义市政府新闻办发布消息称，孝义市胡水线2公里处发生一起因偷排不明液体导致三人中毒死亡的刑事案件。 https://t.co/GsIbvqihPQ<br><img src='/temp/image/2023/u-Month-5/1656209368411414528_0.jpg' width='450' height='500'><br><br>
+5月10日，山西省孝义市政府新闻办发布消息称，孝义市胡水线2公里处发生一起因偷排不明液体导致三人中毒死亡的刑事案件。 https://t.co/GsIbvqihPQ<br><img src='/temp/image/2023/u-Month-5/1656209368411414528_0.jpg' width='450' height='500'><br><br>北京时间2023-05-10T15:51:10Z<br>网友补充2 https://t.co/CdM5Rb9u2j<br><img src='/temp/image/2023/u-Month-5/1656205222597804032_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656205222597804032_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656205222597804032_2.jpg' width='450' height='500'><br><br>
