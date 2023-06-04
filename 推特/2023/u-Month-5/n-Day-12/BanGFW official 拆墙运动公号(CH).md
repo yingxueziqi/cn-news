@@ -5,4 +5,4 @@
 🇺🇸.美國CSIS外交戰略智庫“解讀中國” @ChinaPowerCSIS（https://t.co/wGQz0GN0R6）
 🇺🇳. #大翻譯運動  @TGTM_Official 
 
-#BanGFW #GreatFireWall #만리방화벽금지 #防火墙 #ベルリンの壁 #インタネット #禁止 #Taiwan https://t.co/RfM3TnAVNv<br><img src='/temp/video/2023/u-Month-5/n-Day-12/BanGFW2/1656901322409656320_0.jpg' width='450' height='500'><br><br>
+#BanGFW #GreatFireWall #만리방화벽금지 #防火墙 #ベルリンの壁 #インタネット #禁止 #Taiwan https://t.co/RfM3TnAVNv<br><img src='/temp/video/2023/u-Month-5/n-Day-12/BanGFW2/1656901322409656320_0.jpg' width='450' height='500'><br><br>北京时间2023-05-12T12:12:41Z<br>整体拆除中共互联网防火墙的说法，十多二十年前就有人提出来了，但知道的人几乎为0，持续的实际行动力最重要！ #BanGFW<br><br><br>
