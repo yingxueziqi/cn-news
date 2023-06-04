@@ -7,4 +7,5 @@
 仓央嘉措@EvelynZworld 
 楞珠扎巴@qiao…<br><br><br>北京时间2023-03-22T15:58:24Z<br>【中共触犯无数 #反人类罪 · 为何 #拆墙运动 应放首位？】
 
-70多年来，中共致死上亿人，各国为何缺乏行动？少数国际政商家族有好处，且其都在1万公里以外，只当是中国内政，而不愿花钱去管！但墙事危害80亿人，只要有一点叫骂声，各国议员将不得不介入。#EndGFW #拆牆運動  #CrimesAgainstHumanity https://t.co/Lm6Vc59WpZ<br><img src='/temp/image/2023/w-Month-3/1638450036681105409_0.jpg' width='450' height='500'><br><br>
+70多年来，中共致死上亿人，各国为何缺乏行动？少数国际政商家族有好处，且其都在1万公里以外，只当是中国内政，而不愿花钱去管！但墙事危害80亿人，只要有一点叫骂声，各国议员将不得不介入。#EndGFW #拆牆運動  #CrimesAgainstHumanity https://t.co/Lm6Vc59WpZ<br><img src='/temp/image/2023/w-Month-3/1638450036681105409_0.jpg' width='450' height='500'><br><br>北京时间2023-03-22T15:21:23Z<br>Free Ruan Xiaohuan（阮晓寰), a prominent dissident under the rule of Chinese Communist Party.
+aka 敦促中共立即释放编程随想大侠签名 - Sign the Petition! https://t.co/XGi6W5Famz via @Change<br><br><br>
