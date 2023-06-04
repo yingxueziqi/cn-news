@@ -5,4 +5,5 @@
 #拆墙运动 #恶人榜 #一人一推 https://t.co/rQZVWDQ0qN<br><img src='/temp/video/2023/u-Month-5/au-Day-30/BanGFW2/1663418062463442944_0.jpg' width='450' height='500'><br><br>北京时间2023-05-30T13:07:16Z<br>【灭共三年 · 敢于亮剑· 回归故土 】
 
 亲共人士内部从不是铁板一块，既不信马列也不信鬼神，看在“钱”份上才走一块。疫情期就已对中共外交官爱搭不理了，如今它钱快烧光，海外亲共者连续被重刑伺候，早已四散逃命了。民主派正加速占据国际道德高地，应招安多数温和者，打击少数顽固派。
-#BanGFW #拆墙 https://t.co/iB8ZWPwE55<br><img src='/temp/image/2023/u-Month-5/1663411733762039808_0.jpg' width='450' height='500'><br><br>
+#BanGFW #拆墙 https://t.co/iB8ZWPwE55<br><img src='/temp/image/2023/u-Month-5/1663411733762039808_0.jpg' width='450' height='500'><br><br>北京时间2023-05-30T12:27:11Z<br>RT @Ban_GFW: 感谢越南语DKN TV再次报道 #拆墙运动 ，其Youtube频道有77万人订阅，赞我方勇斗中共40多名网警。
+Great thanks! We're again featured in DKN TV, whose Youtube channel ha…<br><br><br>
