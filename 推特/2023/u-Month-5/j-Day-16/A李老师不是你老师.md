@@ -13,4 +13,5 @@
 据悉，该楼盘物业前期招标严重违规，投标三家公司均不满足招标文件要求，且第二、三中标候选人为围标专业户。最终由蜀川物业中标。 https://t.co/ga53Z50S0O<br><img src='/temp/image/2023/u-Month-5/1658417022156275712_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658417022156275712_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658417022156275712_2.jpg' width='450' height='500'><br><br>北京时间2023-05-16T18:18:24Z<br>网友投稿
 5月16日，北京首都机场发出通知，近期首都机场将采取更为严格的安全检擦措施。
 建议旅客提前2-3小时抵达机场，尽量减少随身行李。 https://t.co/v8TqwsiFnG<br><img src='/temp/image/2023/u-Month-5/1658416602063175681_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T18:16:34Z<br>网友投稿
-目前国内盛传5月14日晚及15日早，北京人大附中通州校区发生一名高二学生砍人事件 https://t.co/js3aFxefI7<br><img src='/temp/image/2023/u-Month-5/1658416138915663872_0.jpg' width='450' height='500'><br><br>
+目前国内盛传5月14日晚及15日早，北京人大附中通州校区发生一名高二学生砍人事件 https://t.co/js3aFxefI7<br><img src='/temp/image/2023/u-Month-5/1658416138915663872_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T18:14:56Z<br>网友投稿
+成都某高校下发通知，将在本周晚些时候专门面向全体新疆籍少数民族学生开展学习二十大精神主题班会。 https://t.co/Tz0OfBX2G9 https://t.co/9O3hWpphVl<br><img src='/temp/image/2023/u-Month-5/1658415731732541443_0.jpg' width='450' height='500'><br><br>
