@@ -1,0 +1,1 @@
+北京时间2023-05-10T21:40:23Z<br>RT @Ban_GFW: Mr. Qiao Xinxin's handwriting at beach of Mekong River between Laos's Vientiane &amp; Thailand's Nongkai, he wishes Mekong Goddess…<br><br><br>北京时间2023-05-10T21:07:50Z<br>支持 #拆墙运动 先锋 #阮晓寰 ，请大家都来呼吁国际社会施压中共放人。<br><br><br>
