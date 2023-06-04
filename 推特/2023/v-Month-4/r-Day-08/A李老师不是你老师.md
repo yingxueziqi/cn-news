@@ -1,0 +1,2 @@
+北京时间2023-04-08T23:46:54Z<br>根据网传信息，疑似因为家庭矛盾导致情绪激动 https://t.co/C7tifk3DT9<br><img src='/temp/image/2023/v-Month-4/1644728533959188481_0.jpg' width='450' height='500'><br><br>北京时间2023-04-08T23:36:24Z<br>网友投稿
+4月6日上午，江苏苏州常熟市某中学一名初三学生持刀伤害他人。当天上午10时，一知情者透露，事发地为常熟市实验中学崇文校区，“事发在今天早晨，女生好像拿了把匕首，被伤害男生疑似去世，具体为何发生矛盾尚不清楚。… https://t.co/pYYPYIwbjh https://t.co/K3RztTIKyh<br><img src='/temp/image/2023/v-Month-4/1644725892436959234_0.jpg' width='450' height='500'><br><br>
