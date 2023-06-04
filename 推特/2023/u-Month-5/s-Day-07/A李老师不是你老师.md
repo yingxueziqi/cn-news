@@ -1,0 +1,2 @@
+北京时间2023-05-07T22:38:44Z<br>网友投稿
+厦门大学上线了新的教务系统，同学之间可以互相举报每堂课的签到情况 https://t.co/w0SZqfirIk<br><img src='/temp/image/2023/u-Month-5/1655220625353367552_0.jpg' width='450' height='500'><br><br>北京时间2023-05-07T20:38:02Z<br>5月5日，江苏昆山市一房企因为降价被政府以“扰乱市场，造成社会不稳定”为由处罚。 https://t.co/6dVeWzgndJ https://t.co/aHw7SVfLLu<br><img src='/temp/video/2023/u-Month-5/s-Day-07/whyyoutouzhele/1655190251730501633_0.jpg' width='450' height='500'><br><br>
