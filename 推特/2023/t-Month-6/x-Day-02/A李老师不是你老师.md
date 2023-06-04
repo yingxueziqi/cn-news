@@ -3,4 +3,6 @@
 校方暂时没有出面。 https://t.co/NEMETLcKy1<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664655182829895682_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T23:25:08Z<br>根据现场反馈消息
 目前，游行队伍出现分流，一支去了光谷大道，一支折返回学校<br><br><br>北京时间2023-06-02T23:04:41Z<br>游行队伍继续往教育局进发
 现场警察并没有干涉。
-路上几乎没车辆，可能是被提前疏散管制了。 https://t.co/WFVqfSAGt5<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664649243024392196_0.jpg' width='450' height='500'><br><br>
+路上几乎没车辆，可能是被提前疏散管制了。 https://t.co/WFVqfSAGt5<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664649243024392196_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T22:55:59Z<br>民众们一直喊着去教育局
+现场有警察过来交涉，希望民众选出代表
+民众回应“我们没有代表，我们是为自己发声” https://t.co/ztdpNkZSxw<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664647049965436928_0.jpg' width='450' height='500'><br><br>
