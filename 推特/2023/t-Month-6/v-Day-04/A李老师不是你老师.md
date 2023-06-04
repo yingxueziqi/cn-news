@@ -23,4 +23,5 @@ https://t.co/feYAcxa0c1<br><br><br>北京时间2023-06-04T14:31:48Z<br>PPS：我
 每年的今天都是互联为审查最严格的时期，任何一丁点的影射都会封号禁言，请大家珍惜自己的墙内账号，不要去做无谓的测试，发表言论之前先认清风险。<br><br><br>北京时间2023-06-04T12:50:45Z<br>还有一个
 https://t.co/PtKofkqnmQ<br><br><br>北京时间2023-06-04T12:35:28Z<br>网友投稿
 6月4日中午，英国驻华大使馆微博发布了1989年6月4日的人民日报头版。
-随后微博被删除。 https://t.co/pDdPg6mst3<br><img src='/temp/image/2023/t-Month-6/1665215671347576833_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665215671347576833_1.jpg' width='450' height='500'><br><br>
+随后微博被删除。 https://t.co/pDdPg6mst3<br><img src='/temp/image/2023/t-Month-6/1665215671347576833_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665215671347576833_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:30:23Z<br>网友投稿
+6月3日，网传各地学校开始下发通知要求上交护照，禁止教职工私自出国。 https://t.co/s6nDO68EyJ<br><img src='/temp/image/2023/t-Month-6/1665214388851077120_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_2.jpg' width='450' height='500'><br><br>
