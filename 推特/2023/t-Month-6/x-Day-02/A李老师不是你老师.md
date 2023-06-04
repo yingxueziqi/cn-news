@@ -15,4 +15,6 @@
 6月2日，吉林某高校招募志愿者，在3、4日晚上对校园进行安全巡逻。 https://t.co/EmPjlIi0E9<br><img src='/temp/image/2023/t-Month-6/1664615103419777027_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T20:11:48Z<br>网友投稿
 6月2日，抖音向各大网红KOL和品牌方发布内部通知，要求3，4，5三天禁止发布推广
 评论、转发严禁出现“点蜡烛”、“含义不明的数字”、“坦克”、“老照片”、“成龙/谭咏麟/曾志伟/梅艳芳等香港艺人”、“含人群聚集/维多利亚港/天安门/颐和园/烛光/物体排成一排”等元素。… https://t.co/KCZpW3mjSo https://t.co/RH2RmyVwsZ<br><img src='/temp/image/2023/t-Month-6/1664605733453807616_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T20:10:01Z<br>网友投稿
-6月1日，有网友发布视频，海南某村全体村民集体投票罢免村干部，罢免成功后又是欢呼又是敲锣放鞭炮庆祝。 https://t.co/1ilkTs66zx<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664605285925765122_0.jpg' width='450' height='500'><br><br>
+6月1日，有网友发布视频，海南某村全体村民集体投票罢免村干部，罢免成功后又是欢呼又是敲锣放鞭炮庆祝。 https://t.co/1ilkTs66zx<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664605285925765122_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T19:25:25Z<br>网友投稿
+6月2日，多方消息称，此前“小学生校内被老师开车撞死”事件中的小孩母亲坠楼身亡。
+据悉，遭遇严重网暴是其自杀的重要原因之一。 https://t.co/oPlvXXp1jz<br><img src='/temp/image/2023/t-Month-6/1664594059896270848_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_3.jpg' width='450' height='500'><br><br>
