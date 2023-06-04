@@ -4,4 +4,4 @@
 #BanGFW #拆墙
 
 https://t.co/4X7uBPavcz<br><br><br>北京时间2023-05-27T12:07:29Z<br>RT @Ban_GFW: @MyloveKBS Many S. Korean in China are complaining the Chinese Communist Party again blocks their portal website NAVER  #Great…<br><br><br>北京时间2023-05-27T11:12:31Z<br>RT @Ban_GFW: 韩联社：#拆墙运动 急需韩语作家，以反击中共防火墙把Naver等多个门户网全封锁
-S. Korea's  @YonhapNews tells #BanGFW need Korean writers while CCP has blocked all p…<br><br><br>
+S. Korea's  @YonhapNews tells #BanGFW need Korean writers while CCP has blocked all p…<br><br><br>北京时间2023-05-27T10:42:58Z<br>RT @Ban_GFW: Hot news in RFA: No.1  Korean portal website &amp; search engine NAVER has been blocked in China? Chinese Communist Party said we…<br><br><br>
