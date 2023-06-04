@@ -13,4 +13,4 @@ https://t.co/gPvx2wXRTJ https://t.co/H6BFRj9bqx<br><img src='/temp/video/2023/v-
 https://t.co/f7vtmIhC8j<br><br><br>北京时间2023-04-03T10:36:15Z<br>有网友发现，央视网默默删除了此前发布的一系列造福神话。 https://t.co/Ti9QAudk3r<br><img src='/temp/image/2023/v-Month-4/1642717619898679299_0.jpg' width='450' height='500'><br><br>北京时间2023-04-03T09:03:36Z<br>在此我想说，如果你觉得在这件事里，说你想听的话比冒充别人重要，那么不妨把你自己的照片和名字借给这个人用，而不是纵容他假冒他人。
 毕竟对你们而言“讲真话”最重要，那么你们的身份给那些讲真话的人用一下应该没什么关系。
 
-https://t.co/PaRtzdUO1M<br><br><br>
+https://t.co/PaRtzdUO1M<br><br><br>北京时间2023-04-03T09:02:16Z<br>凤姐今天再次发表声明，就目前推特上的两个假冒自己的账号进行了回应，并说，自己这么多年在互联网上受到很多伤害，所以不想在网络上露面，自己只想像普通人生活。… https://t.co/ojDWcQnLB9 https://t.co/IQWalom5qn<br><img src='/temp/video/2023/v-Month-4/w-Day-03/whyyoutouzhele/1642693968294039554_0.jpg' width='450' height='500'><br><br>
