@@ -1,2 +1,2 @@
-北京时间2023-05-25T22:26:50Z<br>网友投稿
-2011年版与2022年版义务教育物理课程标准变化对比 https://t.co/8gNLVSanoS<br><img src='/temp/image/2023/u-Month-5/1661740614306906120_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661740614306906120_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661740614306906120_2.jpg' width='450' height='500'><br><br>北京时间2023-05-25T21:35:25Z<br>后续救援视频 https://t.co/mjMS3gC8CM<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661727674887442432_0.jpg' width='450' height='500'><br><br>
+北京时间2023-05-25T21:05:32Z<br>网友投稿
+刚刚，宁波大学医学院附属医院突发火灾 https://t.co/ZJ3FPdHmAp<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661720155360043010_0.jpg' width='450' height='500'><br><br>
