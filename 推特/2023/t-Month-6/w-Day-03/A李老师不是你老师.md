@@ -14,4 +14,4 @@
 多个App和游戏近日纷纷在本周末开启“夏季维护”
 禁止发言，更换头像，个人信息等
 有直播工会宣布本周末不得户外直播，不得播外服游戏，遮挡聊天框和昵称等。 https://t.co/SPKF280jZG<br><img src='/temp/image/2023/t-Month-6/1664689898035507201_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_3.jpg' width='450' height='500'><br><br>北京时间2023-06-03T01:23:21Z<br>北京时间 1:10，学校家长已经散去，事情没有达成共识，家长表示未来几天还会发起游行。<br><br><br>北京时间2023-06-03T01:05:11Z<br>后续更新
-有知情人辟谣称，孩子父亲并非坠楼，而是伤心过度被送到医院 https://t.co/kjONbscdPV<br><img src='/temp/image/2023/t-Month-6/1664679567888351255_0.jpg' width='450' height='500'><br><br>
+有知情人辟谣称，孩子父亲并非坠楼，而是伤心过度被送到医院 https://t.co/kjONbscdPV<br><img src='/temp/image/2023/t-Month-6/1664679567888351255_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T00:32:28Z<br>目前情况 https://t.co/VG302YOSdi<br><img src='/temp/image/2023/t-Month-6/1664671334624788480_0.jpg' width='450' height='500'><br><br>
