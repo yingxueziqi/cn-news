@@ -11,4 +11,6 @@
 4月20日，上海车展的宝马Mini展台，疑似工作人员在发放冰激凌时区别对待外国人和中国人，引发网友广泛讨论，冲上微博热搜。 https://t.co/TX1wiJ766Q<br><img src='/temp/video/2023/v-Month-4/f-Day-20/whyyoutouzhele/1649027267668979713_0.jpg' width='450' height='500'><br><br>北京时间2023-04-20T20:11:09Z<br>网友投稿
 4月18日，国家统计局公布数据，3月份青年失业率上升至19.6%，创2022年8月以来新高。 https://t.co/itFHEKVEtP<br><img src='/temp/image/2023/v-Month-4/1649022890531082240_0.jpg' width='450' height='500'><br><br>北京时间2023-04-20T19:41:10Z<br>网友投稿
 广西钦州市一名女高中生在上体育课时被体育老师猥亵，事后学校塞红包给女生希望其封口，之后老师表示愿意赔偿13万“法外开恩”。
-然而广西警方表示，由于证据不足，决定不予行政处罚。 https://t.co/s7WNWLoQZm<br><img src='/temp/image/2023/v-Month-4/1649015347125661697_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649015347125661697_1.jpg' width='450' height='500'><br><br>
+然而广西警方表示，由于证据不足，决定不予行政处罚。 https://t.co/s7WNWLoQZm<br><img src='/temp/image/2023/v-Month-4/1649015347125661697_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649015347125661697_1.jpg' width='450' height='500'><br><br>北京时间2023-04-20T09:07:10Z<br>网友投稿
+国家疾控局：奉劝世卫有关人士 不要成为新冠溯源政治化的工具
+结果评论区大翻车，大量网友支持世卫组织溯源。 https://t.co/ScG47bz9XB<br><img src='/temp/image/2023/v-Month-4/1648855794245419017_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648855794245419017_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648855794245419017_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648855794245419017_3.jpg' width='450' height='500'><br><br>
