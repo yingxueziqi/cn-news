@@ -13,4 +13,4 @@
 
 个人简历：https://t.co/NdGhWq3tLO
 
-【No.01 2suspect in building #GreatFirewall of #P…<br><br><br>
+【No.01 2suspect in building #GreatFirewall of #P…<br><br><br>北京时间2023-05-31T09:29:28Z<br>RT @IndianaJon71208: 其实中国的“安全”以及“繁荣”都来自于不报道，大家自然就会觉得：你说的那些我怎么没看到？当然，小粉红就算看到了也会极力说服自己那只是极少数而已，但我始终还是相信多数中国人有救的，拆墙运动成功之后粉红的下场，就是现在墙外活跃粉红的下场，粉…<br><br><br>
