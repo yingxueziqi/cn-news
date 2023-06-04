@@ -13,4 +13,7 @@
 再加点年轻人爱的快节奏元素，
 乘着我们 #禁墙运动 的大风，
 相信肯定能长期火遍全球音乐榜！
-#BanTikTok #禁抖音 #禁防火墙 #BanGFW #格雷老师 #中文通<br><br><br>
+#BanTikTok #禁抖音 #禁防火墙 #BanGFW #格雷老师 #中文通<br><br><br>北京时间2023-03-28T17:41:37Z<br>Let's #BanTikTok &amp; #BanGFW now!
+让我们把抖音和防火墙都禁了！
+
+(Lyrics歌词)CCP is world's greatest threat, they want to own our Internet. To spy on us and control our minds, they've banned ours (platforms). Let's respond in kind &amp; #BanTikTok now. 中共就是世界最大威胁 #禁防火墙<br><br><br>
