@@ -1,4 +1,14 @@
-北京时间2023-06-03T01:05:11Z<br>后续更新
+北京时间2023-06-03T20:18:08Z<br>网友投稿
+6月3日，北京鸟巢国家体育场五月天演唱会场外，疑似一名女子在高处挥舞美国国旗和标语，抛洒《独立宣言》选段。
+随后被赶来的安保人员制止。 https://t.co/9WiYyFfs3l https://t.co/GndHASbLX8<br><img src='/temp/video/2023/t-Month-6/w-Day-03/whyyoutouzhele/1664969713682726912_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T20:03:59Z<br>网友投稿
+6月3日，北京网友发现“看桥员”再次上岗 https://t.co/VODJ44bQG3<br><img src='/temp/image/2023/t-Month-6/1664966153381244929_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T16:05:05Z<br>网友投稿
+6月3日10时许，四川德阳什邡市永正西街附近，一男子当街持刀捅一女子。目击者刘先生称事发于路边一药店门口，男子用刀将女子捅伤，女子被捅后躺倒在地没有动弹，随后，男子持刀划伤自己颈脖处，倒在被捅女子身上。
+画面显示，随后警方到达现场处理，并维护秩序。13时许，当地派出所民警称两人已送医，事件正在处理中。<br><img src='/temp/video/2023/t-Month-6/w-Day-03/whyyoutouzhele/1664906034027061249_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T03:10:26Z<br>网友投稿
+受巴黎Major“雪山狮子旗”事件影响，国内CSGO比赛不再转播现场观众画面。
+当每小局比赛结束导播切到现场观众时，国内转播流会自动切到蓝屏 https://t.co/PItVFSIs0f<br><img src='/temp/image/2023/t-Month-6/1664711085079900163_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T01:46:14Z<br>网友投稿
+多个App和游戏近日纷纷在本周末开启“夏季维护”
+禁止发言，更换头像，个人信息等
+有直播工会宣布本周末不得户外直播，不得播外服游戏，遮挡聊天框和昵称等。 https://t.co/SPKF280jZG<br><img src='/temp/image/2023/t-Month-6/1664689898035507201_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664689898035507201_3.jpg' width='450' height='500'><br><br>北京时间2023-06-03T01:23:21Z<br>北京时间 1:10，学校家长已经散去，事情没有达成共识，家长表示未来几天还会发起游行。<br><br><br>北京时间2023-06-03T01:05:11Z<br>后续更新
 有知情人辟谣称，孩子父亲并非坠楼，而是伤心过度被送到医院 https://t.co/kjONbscdPV<br><img src='/temp/image/2023/t-Month-6/1664679567888351255_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T00:32:28Z<br>目前情况 https://t.co/VG302YOSdi<br><img src='/temp/image/2023/t-Month-6/1664671334624788480_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T00:31:30Z<br>6月1日，著名学者李毅再次发表暴论
 称如果因为统一台湾中国死去一亿四千亿人，这在人类历史上是小菜一碟。
 “我想很多中国人应该已经做了准备……如果稍加教育，这些年轻人都会同意，为了统一台湾，大陆可以死上一亿四千万人” https://t.co/x9YhTdyjAf<br><img src='/temp/video/2023/t-Month-6/w-Day-03/whyyoutouzhele/1664671091602726913_0.jpg' width='450' height='500'><br><br>北京时间2023-06-03T00:03:36Z<br>现场出现前来增援的警察。 https://t.co/IeFcja1rui<br><img src='/temp/image/2023/t-Month-6/1664664069503066112_0.jpg' width='450' height='500'><br><br>
