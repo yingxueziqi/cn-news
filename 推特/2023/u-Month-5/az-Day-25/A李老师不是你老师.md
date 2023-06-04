@@ -1,2 +1,4 @@
 北京时间2023-05-25T21:05:32Z<br>网友投稿
-刚刚，宁波大学医学院附属医院突发火灾 https://t.co/ZJ3FPdHmAp<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661720155360043010_0.jpg' width='450' height='500'><br><br>
+刚刚，宁波大学医学院附属医院突发火灾 https://t.co/ZJ3FPdHmAp<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661720155360043010_0.jpg' width='450' height='500'><br><br>北京时间2023-05-25T20:41:18Z<br>5月24日，两起伤人事件汇总
+24日傍晚，四川广安某中学一名男生因口角被两名同学打死。
+24日凌晨，海南三亚，一男子先后砍杀两人。 https://t.co/bEWuheMP5i<br><img src='/temp/image/2023/u-Month-5/1661714056565121024_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661714056565121024_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661714056565121024_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661714056565121024_3.jpg' width='450' height='500'><br><br>
