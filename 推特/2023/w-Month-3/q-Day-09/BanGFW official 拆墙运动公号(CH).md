@@ -21,4 +21,4 @@ https://t.co/LZ9pmm6XHn<br><br><br>北京时间2023-03-09T01:01:34Z<br>中国互
 
 一进中国就用不了Google、Youtube, 很多国家百姓都知道GFW的邪恶性。有太多人都想挑战它，但即便全球顶级黑客也只能偶尔占据几分钟屏幕，因GFW是软硬件科技及政治法律多层手段建立和维护的，拿到国际政治舞台审判才能根治！
 #EndGFW
-https://t.co/jN7ycR95F6<br><br><br>
+https://t.co/jN7ycR95F6<br><br><br>北京时间2023-03-09T00:32:45Z<br>CCP: surppress, control its people<br><br><br>
