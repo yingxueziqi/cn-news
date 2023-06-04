@@ -15,4 +15,5 @@
  @JustinTrudeau<br><br><br>北京时间2023-03-26T17:44:09Z<br>RT @EndGFW2: @iingwen Invitation for Taiwan to join EndGFW Campaign to tear down CCP Internet Berlin Wall to get better international frien…<br><br><br>北京时间2023-03-26T15:29:46Z<br>RT @gujinlai: 世上本来没有道路，人走的多了便有了道路。
 抓了一位编程随想，那么无数的编程狂想会不约而同的站出来！
 这个春天，我们一起为编程而狂想！
-#反贼开源 https://t.co/349MEXqKVj<br><img src='/temp/image/2023/w-Month-3/1639892383520391168_0.jpg' width='450' height='500'><br><br>
+#反贼开源 https://t.co/349MEXqKVj<br><img src='/temp/image/2023/w-Month-3/1639892383520391168_0.jpg' width='450' height='500'><br><br>北京时间2023-03-26T14:48:33Z<br>RT @EndGFW2: 诚邀Google Twitter ChatGPT等企业进军中国，共享十万亿美元级大餐，你支持吗？请评论区谈谈
+We'd like to invite hi-tech companies such as Google Twitter ChatGPT to…<br><br><br>
