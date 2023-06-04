@@ -5,4 +5,6 @@
 4月28日，中央网信办发文：重点治理以贴标签等方式恶意散布“民企卖国论”等论调… https://t.co/rgZlTguzGh https://t.co/g7n2m3KHtM<br><img src='/temp/image/2023/v-Month-4/1651897921409884160_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651897921409884160_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651897921409884160_2.jpg' width='450' height='500'><br><br>北京时间2023-04-28T18:30:32Z<br>网友投稿
 4月25日，江苏省南通市发布数字人民币试点工作方案通知。 https://t.co/iZb5Cb9vGu<br><img src='/temp/image/2023/v-Month-4/1651896674955010055_0.jpg' width='450' height='500'><br><br>北京时间2023-04-28T18:24:29Z<br>RT @CHRDnet: Good to see that 4 of the women involved in the Blank Paper protests have been released!
 
-But we continue to be concerned for…<br><br><br>
+But we continue to be concerned for…<br><br><br>北京时间2023-04-28T18:17:17Z<br>网友投稿
+四川遂宁射洪市乡63岁的乡邮员王水兴至今没有退休。
+据其描述，养老金的钱他是交到邮政部门的，但很多年以后才发现，邮政部门并未把这笔钱交到社保局去。如今该退休了，社保局却没有他的名字。… https://t.co/04mOv5NfeM https://t.co/9fV4uvtthe<br><img src='/temp/image/2023/v-Month-4/1651893338507735041_0.jpg' width='450' height='500'><br><br>
