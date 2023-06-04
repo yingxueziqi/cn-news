@@ -10,4 +10,6 @@
 赶紧 #禁抖音 #禁防火墙 
 #BanTikTok #BanGFW #拆墙<br><br><br>北京时间2023-03-30T16:05:52Z<br>RT @WENBO92601009: @qiaoxinxin88 已说过多次，再附议一下：拆墙是推翻专制的最首要事项、最有效途径、最当务之急！<br><br><br>北京时间2023-03-30T15:57:26Z<br>中国热血青年要冲破中共封锁了！<br><br><br>北京时间2023-03-30T13:31:08Z<br>【诚邀5000万缅甸人加入全球 #拆墙运动 共击两国独裁者】
 中共2000年建立互联网防火墙后，还向越柬寮俄伊等国推广邪恶墙技术。2年前缅甸政变后，中共派出的互联网墙技术员帮助军政府进行关键词审查，并用于抓捕抗议者。这招致无数缅人去中共使馆举牌反对。
-#WeSupportNUG #MilkTeaAlliance #奶茶聯盟 https://t.co/M8aZFBhg9y<br><img src='/temp/image/2023/w-Month-3/1641312080807739392_0.jpg' width='450' height='500'><br><br>
+#WeSupportNUG #MilkTeaAlliance #奶茶聯盟 https://t.co/M8aZFBhg9y<br><img src='/temp/image/2023/w-Month-3/1641312080807739392_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T11:25:39Z<br>RT @RFA_Chinese: 【蔡英文抵达纽约 抗议者与欢迎者隔街对阵】
+#蔡英文过境纽约，3月29日下午约4点抵达下榻的乐天纽约皇宫(Lotte New York Palace)酒店。
+酒店外有很多当地台侨及少量大陆民主人士到场欢迎，也有当地大陆侨团用巴士组织数百人到场抗…<br><br><br>
