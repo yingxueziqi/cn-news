@@ -10,4 +10,5 @@ By which 1.4 billion Chinese h…<br><br><br>北京时间2023-04-01T15:44:59Z<br
 两次签名获得了将近200签名，但总有网友说签名页出多种状况，刚再被删帖，同样是说违背平台规则，具体不说。中共网警账号恶意举报，还是其他？但可以…<br><br><br>北京时间2023-04-01T15:40:29Z<br>RT @ldskjsdavds: #恶人榜 义工队对侦察 #拆墙运动 的中共40余名网警劝诫信（3.30）
 
 80亿人拆墙大业，不是一些网警水军能阻挡的，红朝末年，赶紧顺应世界文明大潮，让14亿人用上Google、ChatGPT、Twitter，将功赎过，否则不久必将遭到重罚！…<br><br><br>北京时间2023-04-01T15:26:08Z<br>RT @Ban_GFW: #BanGFW movement can end endless conflicts between China &amp; other nations soon, we need more multilingual volunteers to write &amp;…<br><br><br>北京时间2023-04-01T15:21:44Z<br>RT @macnobi: 海外の華僑へ嫌がらせする中国共産党
-公安ネット警察の電話番号が晒される🤣<br><br><br>
+公安ネット警察の電話番号が晒される🤣<br><br><br>北京时间2023-04-01T15:18:40Z<br>这么大场面竟然“数典忘祖”都搞错，中共驻纽约总领事黄屏把活动经费全贪了？
+#拆墙运动<br><br><br>
