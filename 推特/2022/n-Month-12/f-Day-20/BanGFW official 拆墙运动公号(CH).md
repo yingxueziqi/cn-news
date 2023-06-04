@@ -2,4 +2,4 @@
 
 If foreign companies want access to its commodities, the refining has to be done domes…<br><br><br>北京时间2022-12-20T18:50:03Z<br>RT @BrianGitt: China tightens its grip on the electric vehicle (EV) supply chain.
 
-China invested $14 billion in Indonesia—the heart of the…<br><br><br>
+China invested $14 billion in Indonesia—the heart of the…<br><br><br>北京时间2022-12-20T13:44:20Z<br>RT @kompascom: Dirut PT Kereta Cepat Indonesia China (KCIC) Dwiyana Slamet Riyadi mengatakan, kereta kerja tersebut berupa lokomotif diesel…<br><br><br>
