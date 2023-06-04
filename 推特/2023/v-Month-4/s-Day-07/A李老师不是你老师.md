@@ -3,4 +3,5 @@
 这些天里我一直在思考和反省，意识到了自己的疏忽给大家造成的困扰。在这里我保证，今后我将更加谨慎，认真核实信息，并保证不会再次犯类似的错误，请大家监督。… https://t.co/O4r2rCGriu<br><br><br>北京时间2023-04-07T22:41:02Z<br>原帖
 https://t.co/FOhpT257H2<br><br><br>北京时间2023-04-07T22:13:27Z<br>网友投稿
 近日，有小红书网友曝光称，发现华为手机在拍摄月亮时会自动生成算法，出现假月亮。
-引发网友广泛讨论 https://t.co/U28jpyrNBM<br><img src='/temp/image/2023/v-Month-4/1644342628199038976_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_3.jpg' width='450' height='500'><br><br>
+引发网友广泛讨论 https://t.co/U28jpyrNBM<br><img src='/temp/image/2023/v-Month-4/1644342628199038976_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644342628199038976_3.jpg' width='450' height='500'><br><br>北京时间2023-04-07T21:59:31Z<br>4月7日，德阳市公安局发布警情通报称，此前网上盛传的“中国电科员工集体辞职”聊天记录系伪造，陈某龙（男，汉族，26岁）因此前向中国电科求职未被录用，心生不满，利用图像处理软件捏造相关聊天记录，引发公众热议，造成恶劣影响。
+目前对其做出行政拘留处罚，案件仍在进一步侦办中。 https://t.co/mQB8uNC5Q3 https://t.co/biPfRX4UHu<br><img src='/temp/image/2023/v-Month-4/1644339120993452032_0.jpg' width='450' height='500'><br><br>
