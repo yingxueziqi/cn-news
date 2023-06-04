@@ -24,4 +24,6 @@
 导致海外民运不仅缺钱连观众都缺乏，
 赶紧上街抗议或写帖子转发“拆墙”事务吧！
 
-#BanTikTok #BanGFW<br><br><br>北京时间2023-03-30T00:49:20Z<br>RT @MinZhuBiSheng: @EndGFW2 拆牆直搗邪共死穴，大家加油。<br><br><br>北京时间2023-03-30T00:30:31Z<br>RT @Ban_GFW: Our volunteer Mr. Chau are holding signs "tear down CCP Internet Berlin Wall" to protest in front of CCP's consulate in Los An…<br><br><br>
+#BanTikTok #BanGFW<br><br><br>北京时间2023-03-30T00:49:20Z<br>RT @MinZhuBiSheng: @EndGFW2 拆牆直搗邪共死穴，大家加油。<br><br><br>北京时间2023-03-30T00:30:31Z<br>RT @Ban_GFW: Our volunteer Mr. Chau are holding signs "tear down CCP Internet Berlin Wall" to protest in front of CCP's consulate in Los An…<br><br><br>北京时间2023-03-30T00:10:46Z<br>RT @EndGFW2: 【感谢加拿大华裔知名媒体人盛雪女士对 #拆墙运动 的高度肯定】
+
+盛雪五六十年来，受尽中共迫害，在北京和多伦多都亲历了各种涉华民主运动，且通过记者身份留下大量珍贵的文字和影像资料。发起人曾有幸采访过她2次，身体并不太好，但却每天像消防员一样推民主。非常…<br><br><br>
