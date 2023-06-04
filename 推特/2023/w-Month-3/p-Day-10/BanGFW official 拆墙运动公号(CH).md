@@ -14,4 +14,7 @@ https://t.co/09dhKv0iBc<br><br><br>北京时间2023-03-10T00:06:42Z<br>幫14億�
 Welcome to sign the petition to help 1.4 billion Chinese tear down Internet Berlin Wall of CCP
 
 #EndGFW  #柏林墙 #互联网防火墙
-https://t.co/BPYyGNq8G7<br><br><br>
+https://t.co/BPYyGNq8G7<br><br><br>北京时间2023-03-10T00:03:37Z<br>My newest words to describe China's Internet censorship system GFW, which may help the Westerners to recognize its  massive threats to the world  in 10 seconds.
+
+我最新版的讨墙檄文措词，希望能让西方读者10秒就能通过标题识别主要内容及愚民墙对各国的巨大危害。
+#EndGFW https://t.co/bh57TjxsMa<br><img src='/temp/image/2023/w-Month-3/1633861102181425152_0.jpg' width='450' height='500'><br><br>
