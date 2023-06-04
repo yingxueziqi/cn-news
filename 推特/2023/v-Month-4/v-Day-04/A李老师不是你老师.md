@@ -1,0 +1,4 @@
+北京时间2023-04-04T20:51:18Z<br>中山大学学生投稿
+因4月7号法国总统马克龙将要前往中山大学演讲，校方紧急将原先体育馆内的所有蹲便池换成了马桶。 https://t.co/ZSLLnAA0pM<br><img src='/temp/image/2023/v-Month-4/1643234791469318146_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643234791469318146_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643234791469318146_2.jpg' width='450' height='500'><br><br>北京时间2023-04-04T20:26:09Z<br>近日来有一些网友投稿
+仅仅四个月后，“疫情”似乎已经成为了一个不正确记忆
+无论是科研项目申报，上市公司年报，还是校园内的普通小活动，都已经不让提及。 https://t.co/vBQbl2ONJp<br><img src='/temp/image/2023/v-Month-4/1643228461308448769_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643228461308448769_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643228461308448769_2.jpg' width='450' height='500'><br><br>
