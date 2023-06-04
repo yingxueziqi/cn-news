@@ -4,4 +4,12 @@
 
 目前林生亮发起的恶人榜，严重地冲击了各级衙役对红朝的忠诚度。用超级便宜的Skype网络电话，去夜里劝诫其家属，能迅速见效，更好地鼓励更多人反抗，此事意义重大，具体请联系荷兰的 @LinShengliang。#恶人榜 #一人一推 #拆墙运动 #EndGFW https://t.co/C52pV13UWN<br><img src='/temp/image/2023/w-Month-3/1639988274382110720_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1639988274382110720_1.jpg' width='450' height='500'><br><br>北京时间2023-03-26T18:37:21Z<br>RT @EndGFW2: 【#拆牆運動 秘書處就台灣與洪都拉斯斷交之聲明】
 
-堅定支持台灣反對中共外交霸凌行徑，呼籲2300萬台灣人在內的世界80億人加入本運動，讓14億人自由登陸Google、ChatGPT、Twitter等網站，在自由健康信息下擺脫對中共的宣傳，從而促進台海…<br><br><br>
+堅定支持台灣反對中共外交霸凌行徑，呼籲2300萬台灣人在內的世界80億人加入本運動，讓14億人自由登陸Google、ChatGPT、Twitter等網站，在自由健康信息下擺脫對中共的宣傳，從而促進台海…<br><br><br>北京时间2023-03-26T18:08:48Z<br>Invitation for Taiwan to join #EndGFW Campaign to tear down CCP Internet Berlin Wall to get better international friends
+誠邀後洪都拉斯時代的台灣參與80億人拆牆運動並廣交各國朋友
+#拆墙运动 #Taiwan #Honduras 
+@POTUS
+ @narendramodi
+ @OlafScholz
+ @MOFA_Taiwan
+ @AlboMP
+ @JustinTrudeau<br><br><br>
