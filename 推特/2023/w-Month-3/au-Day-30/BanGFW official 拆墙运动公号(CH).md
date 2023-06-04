@@ -1,0 +1,3 @@
+北京时间2023-03-30T21:17:51Z<br>#拆墙运动 五大洲支持者正源源不断地赶来声援，欢迎更多“保墙五毛”来泼冷水！
+
+没自由的互联网，就等于一个聋子+哑巴+瞎子，钱财、生命都毫无保障，干啥事都困难重重！请一起来写贴 #拆墙 哦！#BanTikTok #BanGFW https://t.co/oYAMKW2V6Y<br><img src='/temp/image/2023/w-Month-3/1641429532317204481_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T20:51:50Z<br>RT @LinShengliang: 在國內被惡官酷吏欺負的同胞如何在有限的條件下盡可能多地收集作惡者的信息。#惡人榜 #言論自由 #酷吏 https://t.co/WOkVTSMZ1X<br><img src='/temp/video/2023/w-Month-3/au-Day-30/BanGFW2/1641422984400490496_0.jpg' width='450' height='500'><br><br>
