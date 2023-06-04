@@ -3,4 +3,4 @@
 目前专科学校里存在的不合理收费现象。 https://t.co/RmBymlp86L<br><img src='/temp/image/2023/u-Month-5/1654467276152643586_0.jpg' width='450' height='500'><br><br>北京时间2023-05-05T20:24:08Z<br>网友投稿
 5月5日，江苏科技大学的学生在校园集市求助，称自己被安排在了双人隔离舱，担心交叉感染
 据悉，江苏科技大学的隔离舱共建设了三个区域，目前第一区住了四分之一人。 https://t.co/c9wSRCltZx<br><img src='/temp/image/2023/u-Month-5/1654461978704740352_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1654461978704740352_1.jpg' width='450' height='500'><br><br>北京时间2023-05-05T19:28:17Z<br>网友投稿
-广东某高校，拍毕业证禁止拉横幅 https://t.co/4o2ROm2Yea<br><img src='/temp/image/2023/u-Month-5/1654447922501623809_0.jpg' width='450' height='500'><br><br>
+广东某高校，拍毕业证禁止拉横幅 https://t.co/4o2ROm2Yea<br><img src='/temp/image/2023/u-Month-5/1654447922501623809_0.jpg' width='450' height='500'><br><br>北京时间2023-05-05T13:55:13Z<br>网友投稿 https://t.co/Hmu8k1V5F8 https://t.co/NeYiwtsijk<br><img src='/temp/video/2023/u-Month-5/u-Day-05/whyyoutouzhele/1654364105346613248_0.jpg' width='450' height='500'><br><br>
