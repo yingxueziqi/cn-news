@@ -5,4 +5,4 @@
 
 CCP is exporting #GreatFirewall tech to Putin,…<br><br><br>北京时间2023-04-10T16:42:37Z<br>RT @Ban_GFW: Why #BanGFW Movement can scare CCP top official ONLY in 2 weeks?
 
-We have 4~5 initiators, no IT tech, but journalists of Inter…<br><br><br>
+We have 4~5 initiators, no IT tech, but journalists of Inter…<br><br><br>北京时间2023-04-10T16:42:34Z<br>RT @Ban_GFW: We sincerely invite Mr. Wang Zhian, Lude Media, top ministers of  Mr. Miles Guo to hold signs to protest against CCP Internet…<br><br><br>
