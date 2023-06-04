@@ -1,0 +1,3 @@
+北京时间2023-05-03T22:06:32Z<br>短信也能禁言？
+一名小红书用户发帖称，自己因为在与前任的短信中发送了含有“死、寄花圈”等字，被中国电信以“短信中可能含有不符合相关规定和要求的内容”为由暂停5个月的短信发送功能 https://t.co/1noeHhs0QQ https://t.co/7RzN9s9asb<br><img src='/temp/image/2023/u-Month-5/1653762972081090562_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653762972081090562_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653762972081090562_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653762972081090562_3.jpg' width='450' height='500'><br><br>北京时间2023-05-03T21:16:43Z<br>无人机撞向克里姆林宫并爆炸的画面。
+https://t.co/T8juMEU50n https://t.co/tJCKajx2fD https://t.co/cs6IvPZSqt<br><img src='/temp/image/2023/u-Month-5/1653750434614460418_0.jpg' width='450' height='500'><br><br>
