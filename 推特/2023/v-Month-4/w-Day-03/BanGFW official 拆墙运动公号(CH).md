@@ -7,4 +7,7 @@ I love global fri…<br><br><br>北京时间2023-04-03T14:21:11Z<br>RT @Ban_GFW:
 求助谱曲：请你来依照《找朋友》曲风，填制成正式的五线谱版  #拆墙歌 
 
 《拆墙歌》   
-拆呀…<br><br><br>
+拆呀…<br><br><br>北京时间2023-04-03T12:01:05Z<br>RT @Ban_GFW: 【Our official LOGO is born, let's use it as our new head photo】
+
+Great thanks to works from our Canadian volunteers!
+Let's alw…<br><br><br>
