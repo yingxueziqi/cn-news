@@ -1,4 +1,8 @@
 北京时间2023-03-22T23:07:49Z<br>做饭菜时间泛泛听听NPR, 看看美国人关心的主要社会议题有哪些， #翻墙运动 在他们的全球棋盘中处于何种地位。#EndGFW 美国虽然常被少数堕落政客操控，但它仍在全球范围一家独大，得思考下如何结合选民的痛点，唤起对中共互联网防火墙的持续谴责，从而让美国政界良心重回正轨。 https://t.co/re3BApfDu2<br><img src='/temp/image/2023/w-Month-3/1638558102319661061_0.jpg' width='450' height='500'><br><br>北京时间2023-03-22T21:58:52Z<br>对，各国网友创作了不少关于GFW的讽刺漫画，多去搜一搜，能找到一些很形象的<br><br><br>北京时间2023-03-22T21:56:32Z<br>常花时间和粉蛆争辩意义不大，以后请大家在这样的火药场，请只复制转发一句话即可。
 
 别吵了，我只同意你一半理由，具体解释请点击右边标签  #EndGFW<br><br><br>北京时间2023-03-22T21:15:24Z<br>面书网友谈拆除 互联网 #防火墙 对中国民主化运动的重要性，评论区一群蛆虫蠕动，就觉得CCP在拆墙事务上多恐惧了！
-#EndGFW #拆墙运动 https://t.co/6aQSDanysb<br><img src='/temp/image/2023/w-Month-3/1638529812653563904_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1638529812653563904_1.jpg' width='450' height='500'><br><br>
+#EndGFW #拆墙运动 https://t.co/6aQSDanysb<br><img src='/temp/image/2023/w-Month-3/1638529812653563904_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1638529812653563904_1.jpg' width='450' height='500'><br><br>北京时间2023-03-22T16:22:40Z<br>RT @wangqingpeng1: 请方便加入 #一人一推 的海外推友联系我🙏
+根据https://t.co/DdHj2Bmj5K；@liangxinfan_DB 统计 , 西藏目前在押良心犯有24人。
+有主推推友的：
+仓央嘉措@EvelynZworld 
+楞珠扎巴@qiao…<br><br><br>
