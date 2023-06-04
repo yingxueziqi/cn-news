@@ -1,0 +1,2 @@
+北京时间2023-04-02T14:15:27Z<br>RT @Ban_GFW: Great thanks for you time and attention, hope we can vote for a 2nd time to collect more votes to free Mr. Ruan Xiaohuan! 
+非常感…<br><br><br>北京时间2023-04-02T14:00:30Z<br>RT @Ban_GFW: Now, we already have about 800 voters to condemn CCP's illegal arrest on prominent blog-writer and Internet security expert Mr…<br><br><br>
