@@ -2,4 +2,6 @@
 在推特上，任何主动给你私信/关心问候/要带你赚钱的陌生帅哥/美女都是假的。
 请中老年推友尤其注意这一点。<br><br><br>北京时间2023-04-24T20:26:58Z<br>网友投稿
 为响应国家“双碳”号召，杭州地铁电梯率先实行了8小时工作制。
-仅在工作日的6：00-10：00，16：00-20：00开放。 https://t.co/Oq9L2fI7cX<br><img src='/temp/image/2023/v-Month-4/1650476425286242307_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_3.jpg' width='450' height='500'><br><br>
+仅在工作日的6：00-10：00，16：00-20：00开放。 https://t.co/Oq9L2fI7cX<br><img src='/temp/image/2023/v-Month-4/1650476425286242307_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650476425286242307_3.jpg' width='450' height='500'><br><br>北京时间2023-04-24T20:11:03Z<br>RT @GFWfrog: 网友邮箱投稿：
+
+广州金沙洲存在一个团伙，已组织未成年，处女卖淫、接待活动多年。他们从外地带女孩来广州，由专门医生开具处女证明，组织联络客户，收款，洗钱，被抓捞人，每批人分工明确。 这些图片只是冰山一角。 https://t.co/DJecxm007s<br><img src='/temp/image/2023/v-Month-4/1650472416747962371_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650472416747962371_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650472416747962371_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650472416747962371_3.jpg' width='450' height='500'><br><br>
