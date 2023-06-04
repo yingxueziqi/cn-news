@@ -1,3 +1,5 @@
 北京时间2023-04-11T23:18:03Z<br>网友投稿 https://t.co/PC2uExMHzi<br><img src='/temp/image/2023/v-Month-4/1645808434158374912_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1645808434158374912_1.jpg' width='450' height='500'><br><br>北京时间2023-04-11T19:56:45Z<br>网友投稿
 近日有博主发贴称，因举办第三届中国国际消费品博览会，海口机场再次施行落地核酸检测。 https://t.co/c9T6QI0SoV<br><img src='/temp/image/2023/v-Month-4/1645757776918921218_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1645757776918921218_1.jpg' width='450' height='500'><br><br>北京时间2023-04-11T19:16:53Z<br>网友投稿 https://t.co/D7zo86XQZX<br><img src='/temp/video/2023/v-Month-4/o-Day-11/whyyoutouzhele/1645747745058172929_0.jpg' width='450' height='500'><br><br>北京时间2023-04-11T18:09:30Z<br>网友投稿
-上海瑞金医院附近 https://t.co/8UVuYX7IfS<br><img src='/temp/image/2023/v-Month-4/1645730786664935424_0.jpg' width='450' height='500'><br><br>
+上海瑞金医院附近 https://t.co/8UVuYX7IfS<br><img src='/temp/image/2023/v-Month-4/1645730786664935424_0.jpg' width='450' height='500'><br><br>北京时间2023-04-11T18:00:11Z<br>网友投稿
+继3月官媒大肆宣传自主创业的造富神话后
+4月，官媒开始宣传呼吁年轻人冷静创业。 https://t.co/RDtR4oxr7b<br><img src='/temp/image/2023/v-Month-4/1645728440790786051_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1645728440790786051_1.jpg' width='450' height='500'><br><br>
