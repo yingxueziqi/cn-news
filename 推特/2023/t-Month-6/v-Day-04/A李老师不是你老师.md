@@ -3,4 +3,4 @@
 美国驻香港和澳门总领事馆的每扇窗户都点起蜡烛。
 https://t.co/Z9o6KJib1i https://t.co/mh9eQzf82B https://t.co/SrLf9qLaqU<br><img src='/temp/image/2023/t-Month-6/1665352535454957569_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T21:11:33Z<br>6月4日，香港
 一名男子向媒体展示“5月35日”的剧本，随后被警察带走。
-https://t.co/tIBL8KbcfS<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665345545118928896_0.jpg' width='450' height='500'><br><br>
+https://t.co/tIBL8KbcfS<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665345545118928896_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T21:07:34Z<br>目前，武汉下起小雨，但是现场道路两边依然聚集着不少民众。警察用人墙封闭了道路出口防止民众走上车道。 https://t.co/01bu6JpG7C<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665344544815161344_0.jpg' width='450' height='500'><br><br>
