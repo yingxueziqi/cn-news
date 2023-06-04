@@ -3,4 +3,5 @@
 结果评论区大量士兵评论抱怨称目前的被装申领系统存在大量零库存，缺货，不发货等现象，疑似出现基本物资短缺的现象。… https://t.co/M9TSRyriO8 https://t.co/CZlchwAhqM<br><img src='/temp/image/2023/u-Month-5/1660665098032095232_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660665098032095232_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660665098032095232_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660665098032095232_3.jpg' width='450' height='500'><br><br>北京时间2023-05-22T22:53:09Z<br>5月22日消息，一个自称为“俄罗斯军团自由”的组织在他们的 Telegram 频道上发布了一段视频，宣布起义。
  “是结束克里姆林宫独裁统治的时候了！要勇敢，不要害怕，因为我们要回家了！俄罗斯将获得自由！”他们在批评普京政权后说。
 
-https://t.co/xPgpKFKK2b<br><img src='/temp/video/2023/u-Month-5/d-Day-22/whyyoutouzhele/1660660074056957953_0.jpg' width='450' height='500'><br><br>
+https://t.co/xPgpKFKK2b<br><img src='/temp/video/2023/u-Month-5/d-Day-22/whyyoutouzhele/1660660074056957953_0.jpg' width='450' height='500'><br><br>北京时间2023-05-22T22:47:53Z<br>网友补充
+中山大学毕业生称，中山大学张贴“十不准”的原因是在几年前有人在教学楼多间教室留下“六四”相关言论 https://t.co/342KWA1epv<br><img src='/temp/image/2023/u-Month-5/1660658748946366465_0.jpg' width='450' height='500'><br><br>
