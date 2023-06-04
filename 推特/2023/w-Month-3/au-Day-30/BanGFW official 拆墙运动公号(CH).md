@@ -16,4 +16,4 @@
 
 #拆墙 并不需要增1毛钱公共开支，一旦实现，独裁者就陷入了14亿人包围，并诞生民选新政府，两岸战争和军费都免了。港澳台人身于大中华区，从小有自由互联网，对…<br><br><br>北京时间2023-03-30T10:41:58Z<br>RT @ActivistLittle: Daily anti-coup revolutionary domestic strike by pro-democracy CDMer teachers from Sagaing University of Education as 7…<br><br><br>北京时间2023-03-30T03:28:23Z<br>「向2300万人推销 #拆墙运动 就是两岸避免战争的最佳方式」
 
-台湾人想保持现状者仍占很大比例，外界天天喊台海战争，但多数岛内人似乎不急，仍岁静地吃喝玩乐，但不希望照单全收每年巨额的对美军购案。#拆墙 一旦实现，独裁者就陷入亿万人包围，战争和军费都免了。希望台湾网军来暗中助力 #BanGFW<br><br><br>
+台湾人想保持现状者仍占很大比例，外界天天喊台海战争，但多数岛内人似乎不急，仍岁静地吃喝玩乐，但不希望照单全收每年巨额的对美军购案。#拆墙 一旦实现，独裁者就陷入亿万人包围，战争和军费都免了。希望台湾网军来暗中助力 #BanGFW<br><br><br>北京时间2023-03-30T02:51:42Z<br>RT @Ban_GFW: Let’s open new branches of the global #BanGFW Movement！Help 1.4 billion Chinese to tear down CCP Internet Berlin Wall &amp; end en…<br><br><br>
