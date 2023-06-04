@@ -1,19 +1,4 @@
-北京时间2023-03-26T23:26:42Z<br>RT @wangqingpeng1: @qiaoxinxin88 @LinShengliang 我用的是最便宜的套餐，一个月3.99美元，400分钟通话费。
-我上周才发现，我的套餐发短信失败了，正在研究中！
-给国内某些人打电话不仅能制止作恶，还很锻炼自己的沟通能力和应变能力。…<br><br><br>北京时间2023-03-26T22:24:08Z<br>RT @LinShengliang: 這個軟體每個月套餐的成本很低，每次拔打電話對方顯示的是不同國家的正常號碼，包括🉑️以發短信。等于把你的號碼隱藏起來，不用擔心通過號碼找到使用者。<br><br><br>北京时间2023-03-26T21:50:48Z<br>「SOS紧急呼救：请来参与Skype电话问候恶人家属工作」
+北京时间2023-03-26T13:59:09Z<br>RT @EndGFW2: 【喜报：美国国务院前二把手称能够拆除中共互联网防火墙】
 
-目前林生亮发起的恶人榜，严重地冲击了各级衙役对红朝的忠诚度。用超级便宜的Skype网络电话，去夜里劝诫其家属，能迅速见效，更好地鼓励更多人反抗，此事意义重大，具体请联系荷兰的 @LinShengliang。#恶人榜 #一人一推 #拆墙运动 #EndGFW https://t.co/C52pV13UWN<br><img src='/temp/image/2023/w-Month-3/1639988274382110720_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1639988274382110720_1.jpg' width='450' height='500'><br><br>北京时间2023-03-26T18:37:21Z<br>RT @EndGFW2: 【#拆牆運動 秘書處就台灣與洪都拉斯斷交之聲明】
-
-堅定支持台灣反對中共外交霸凌行徑，呼籲2300萬台灣人在內的世界80億人加入本運動，讓14億人自由登陸Google、ChatGPT、Twitter等網站，在自由健康信息下擺脫對中共的宣傳，從而促進台海…<br><br><br>北京时间2023-03-26T18:08:48Z<br>Invitation for Taiwan to join #EndGFW Campaign to tear down CCP Internet Berlin Wall to get better international friends
-誠邀後洪都拉斯時代的台灣參與80億人拆牆運動並廣交各國朋友
-#拆墙运动 #Taiwan #Honduras 
-@POTUS
- @narendramodi
- @OlafScholz
- @MOFA_Taiwan
- @AlboMP
- @JustinTrudeau<br><br><br>北京时间2023-03-26T17:44:09Z<br>RT @EndGFW2: @iingwen Invitation for Taiwan to join EndGFW Campaign to tear down CCP Internet Berlin Wall to get better international frien…<br><br><br>北京时间2023-03-26T15:29:46Z<br>RT @gujinlai: 世上本来没有道路，人走的多了便有了道路。
-抓了一位编程随想，那么无数的编程狂想会不约而同的站出来！
-这个春天，我们一起为编程而狂想！
-#反贼开源 https://t.co/349MEXqKVj<br><img src='/temp/image/2023/w-Month-3/1639892383520391168_0.jpg' width='450' height='500'><br><br>北京时间2023-03-26T14:48:33Z<br>RT @EndGFW2: 诚邀Google Twitter ChatGPT等企业进军中国，共享十万亿美元级大餐，你支持吗？请评论区谈谈
-We'd like to invite hi-tech companies such as Google Twitter ChatGPT to…<br><br><br>
+Keith Krach称美国聚焦TikTok的危害后，应联合硅谷公司在防火墙上打洞！
+但也请各位拆墙先锋不要低估了墙经济重组的复杂性，也应趁禁用TikTok良机多多宣讲，让世人看清中共建造的世界…<br><br><br>
