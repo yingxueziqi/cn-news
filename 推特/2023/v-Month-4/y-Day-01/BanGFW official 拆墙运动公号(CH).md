@@ -1,0 +1,2 @@
+北京时间2023-04-01T22:52:08Z<br>RT @GreatFireChina: “In China, you don’t have to care about politics, but politics will come and pay attention to you.”
+https://t.co/CwUI6p…<br><br><br>北京时间2023-04-01T21:33:06Z<br>RT @LinShengliang: 中共國民間抗爭事件每天都在發生，因為中共刻意隱瞞擔心引起抗爭效應挑戰惡權的穩定，一直不為人知，其中最大的阻礙就是 #防火牆 ，如果中國人都可以正常使用互聯網服務，相信大家都會改變對中國人民是順民奴民的看法。參與 #拆牆運動 加速推動民主進程…<br><br><br>
