@@ -38,4 +38,6 @@ Youtube: https://t.co/riQcws3gtE
 真實的中國百姓
 平凡百姓紀實 https://t.co/FzTUS0K0V6<br><img src='/temp/image/2023/u-Month-5/1661585641971527680_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661585641971527680_3.jpg' width='450' height='500'><br><br>北京时间2023-05-25T11:19:59Z<br>#拆墙运动 是否应改名为 #拆墙革命 ？
 
-乔鑫鑫半年前写过海外“白纸运动”2篇长报道，华府中文部下了份内部通知，自由亚洲发稿全部统一为“白纸运动”。事后来看，此用词更准确，谈不上革命，属于被关3年的感性回骂，诉求过多，能准确记住的人很少。拆墙只有1个诉求，但能撼动中共整个政权根基 #BanGFW https://t.co/nH1prubxqe<br><img src='/temp/image/2023/u-Month-5/1661572793518129152_0.jpg' width='450' height='500'><br><br>
+乔鑫鑫半年前写过海外“白纸运动”2篇长报道，华府中文部下了份内部通知，自由亚洲发稿全部统一为“白纸运动”。事后来看，此用词更准确，谈不上革命，属于被关3年的感性回骂，诉求过多，能准确记住的人很少。拆墙只有1个诉求，但能撼动中共整个政权根基 #BanGFW https://t.co/nH1prubxqe<br><img src='/temp/image/2023/u-Month-5/1661572793518129152_0.jpg' width='450' height='500'><br><br>北京时间2023-05-25T09:37:20Z<br>「请你来当拆墙信使•把拆墙宝典发给海外的CCP使领馆、华文媒体、国企」
+
+感谢意见领袖蔡霞女士转发，也感谢党国黑粉们齐聚评论区，无论是“捧”还是“捧杀”，又证明拆墙人的伟光正。拆墙运动作为宏观战略，剑指共匪最敏感地带，天天摩擦已产生火花。请你赶紧四处传播宝典，压制共匪海内外党羽 #BanGFW https://t.co/CpKpskygAw<br><img src='/temp/image/2023/u-Month-5/1661546960237793280_0.jpg' width='450' height='500'><br><br>
