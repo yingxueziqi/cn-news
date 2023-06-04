@@ -12,4 +12,5 @@
 “谐音梗扣钱”
 5月24日，有公众号爆出，贵州一家酒厂在2021年申请了“瓶净悉净瓶”商标，分别指定使用在啤酒和白酒商品上，因此于今年4月被罚款1万元，其商标代理机构被罚10万元。 https://t.co/3YCSY3jVkB<br><img src='/temp/image/2023/u-Month-5/1661688332345016320_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661688332345016320_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661688332345016320_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1661688332345016320_3.jpg' width='450' height='500'><br><br>北京时间2023-05-25T02:23:36Z<br>WHY YOU TOU ZHE LE 🤭 ?
 
-谢谢@NiKiTa_32156 https://t.co/ljUZpv68gu<br><img src='/temp/image/2023/u-Month-5/1661437807993257984_0.jpg' width='450' height='500'><br><br>
+谢谢@NiKiTa_32156 https://t.co/ljUZpv68gu<br><img src='/temp/image/2023/u-Month-5/1661437807993257984_0.jpg' width='450' height='500'><br><br>北京时间2023-05-25T01:04:28Z<br>网友投稿
+近日，国内各地网友发起“我为奶牛猫发声”活动，呼吁政府尽快推进动物保护法立法进程。 https://t.co/ujI3QRDgjS<br><img src='/temp/video/2023/u-Month-5/az-Day-25/whyyoutouzhele/1661417897112092672_0.jpg' width='450' height='500'><br><br>
