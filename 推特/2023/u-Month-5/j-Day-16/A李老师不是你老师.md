@@ -5,4 +5,5 @@
 为笑果脱口秀事件定性。
 
 事件回溯：
-5月13日，微博网友“不愿透露姓名的曼联球迷天某”发文称，笑果文化的线下脱口秀中，表演者House存在使用段子侮辱解放军的情况。… https://t.co/WVypQ3fVR6 https://t.co/ISXmiEV9Tr<br><img src='/temp/image/2023/u-Month-5/1658440380071780352_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T19:40:10Z<br>网友补充 https://t.co/IOitxKpG30<br><img src='/temp/image/2023/u-Month-5/1658437180396564481_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T19:23:15Z<br>RT @PM_Thornton: DW: On the eve of the Internat'l Day Against Homophobia, #China's largest #LGBTQ organization in Beijing announces that it…<br><br><br>
+5月13日，微博网友“不愿透露姓名的曼联球迷天某”发文称，笑果文化的线下脱口秀中，表演者House存在使用段子侮辱解放军的情况。… https://t.co/WVypQ3fVR6 https://t.co/ISXmiEV9Tr<br><img src='/temp/image/2023/u-Month-5/1658440380071780352_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T19:40:10Z<br>网友补充 https://t.co/IOitxKpG30<br><img src='/temp/image/2023/u-Month-5/1658437180396564481_0.jpg' width='450' height='500'><br><br>北京时间2023-05-16T19:23:15Z<br>RT @PM_Thornton: DW: On the eve of the Internat'l Day Against Homophobia, #China's largest #LGBTQ organization in Beijing announces that it…<br><br><br>北京时间2023-05-16T18:37:49Z<br>网友投稿
+西安某小区，中亚峰会期间，居民需要领取“贴纸”，此后凭“贴纸”进出，其他任何凭证都无法进入小区。 https://t.co/72bPbyCNWb<br><img src='/temp/image/2023/u-Month-5/1658421488326672388_0.jpg' width='450' height='500'><br><br>
