@@ -1,1 +1,1 @@
-北京时间2023-04-23T23:54:21Z<br>RT @Ban_GFW: We 1.4 billion Chinese are ready to export #BanGFW tech to 3 Baltic States, Ukraine, Russia, Taiwan, to help end CCP's endless…<br><br><br>北京时间2023-04-23T12:31:53Z<br>RT @Ban_GFW: Mr. Qiao tells @VOANews, only tearing down CCP'S Internet Berlin Wall can really safeguards press &amp; speech freedom in China, a…<br><br><br>
+北京时间2023-04-23T12:31:50Z<br>RT @Ban_GFW: The 1300-page history book can really broaden our horizon, CCP has totally ruined Chinese history and  culture in the past 74…<br><br><br>
