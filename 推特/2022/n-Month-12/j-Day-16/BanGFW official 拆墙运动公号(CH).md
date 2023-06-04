@@ -6,4 +6,4 @@ Tapi hanya menyebut KOMUNISME. Tak…<br><br><br>北京时间2022-12-16T17:12:14
 https://t.co/QNj2JU9OJc
 
 フィリピン国防省は14日、南シナ海にある同国のEEZ内に中国船団が集結しているとして「深い懸念」を表明しました。大半が漁船だが、海上民兵の…<br><br><br>北京时间2022-12-16T15:03:46Z<br>RT @xavikota: 日本語訳記事アルヨ
-https://t.co/BsXjbYT44z<br><br><br>
+https://t.co/BsXjbYT44z<br><br><br>北京时间2022-12-16T14:43:35Z<br>RT @KamedaAkihisa: &gt; 中国の海上法執行機関、中国海警局のトップに、海軍出身の郁忠少将が就任したことが分かった。7日にハノイで行われたベトナムの海上法執行機関との協議に関し、発表文で郁氏を局長として紹介した。前任の王仲才氏も海軍出身で、軍との連携強化が進んでい…<br><br><br>
