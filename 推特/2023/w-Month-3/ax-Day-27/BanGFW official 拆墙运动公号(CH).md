@@ -9,4 +9,4 @@ https://t.co/rfLyoYPpPR<br><br><br>北京时间2023-03-27T18:27:43Z<br>「中推
 #EndGFW #拆墙运动<br><br><br>北京时间2023-03-27T13:20:59Z<br>红朝水军似乎也在讨薪维权，好些天没吃上饭了，智商堪忧啊！无论是色情还是说辞！ https://t.co/UlnFpaA3rs<br><img src='/temp/image/2023/w-Month-3/1640222360866521088_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640222360866521088_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640222360866521088_2.jpg' width='450' height='500'><br><br>北京时间2023-03-27T11:57:06Z<br>光谈“三观”是不够的，请你来一起“搞钱”，你还无动于衷吗？
 
 搞民运也不必避讳谈钱，民主就是顺应全球自由资本主义大潮的优质生活方式。<br><br><br>北京时间2023-03-27T10:25:22Z<br>RT @LinShengliang: 分享 #惡人榜的故事
-1、今天我的一个律师朋友告诉我，他今天去法院辦事，几個法官问他关于 #海外惡人榜…<br><br><br>
+1、今天我的一个律师朋友告诉我，他今天去法院辦事，几個法官问他关于 #海外惡人榜…<br><br><br>北京时间2023-03-27T09:50:51Z<br>RT @donghaizhibin2: @laowang_666 拆除中共 #防火墙可能是世界上最impossible的事情，要不然怎么会集世界上最聪明的IT人员花十几年都搞不定呢？<br><br><br>
