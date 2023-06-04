@@ -12,4 +12,8 @@
 疑似一名程序员在给ChatGPT烧纸。 https://t.co/Lux8ySwrzV<br><img src='/temp/image/2023/v-Month-4/1643403787699101698_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643403787699101698_1.jpg' width='450' height='500'><br><br>北京时间2023-04-05T05:50:41Z<br>网友投稿
 微博上一名博主经过测试发现，原本被微博屏蔽的词汇，只要在前面加上“美国”就可以显示出来。
 随后网友们纷纷开始测试
-（注意图中划横线的部分仅有博主自己可见，在读者视角是看不见的，但是在前面加了美国就可以显示出来被所有人可见） https://t.co/yzCQC7F19d<br><img src='/temp/image/2023/v-Month-4/1643370529363984385_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_2.jpg' width='450' height='500'><br><br>
+（注意图中划横线的部分仅有博主自己可见，在读者视角是看不见的，但是在前面加了美国就可以显示出来被所有人可见） https://t.co/yzCQC7F19d<br><img src='/temp/image/2023/v-Month-4/1643370529363984385_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_2.jpg' width='450' height='500'><br><br>北京时间2023-04-05T05:35:33Z<br>RT @Jeff23Wang: 正值上海封城一周年，这是首位以真名、露脸接受采访的白纸运动参与者。
+
+他讲述了11月27日这天上海乌鲁木齐中路发生的事情。有很多惊心动魄的细节！
+
+ https://t.co/IWNKCwurt7<br><br><br>
