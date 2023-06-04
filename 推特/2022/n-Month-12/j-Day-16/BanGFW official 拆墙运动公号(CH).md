@@ -18,4 +18,7 @@ https://t.co/BsXjbYT44z<br><br><br>北京时间2022-12-16T14:43:35Z<br>RT @Kamed
 https://t.co/MmrmFkITwB<br><br><br>北京时间2022-12-16T12:59:19Z<br>RT @detikcom: Mobil listrik Wuling Air ev diakabrkan bakal dijual di China. Akankah mobil itu dikirim dari pabrik Wuling di kawasan Cikaran…<br><br><br>北京时间2022-12-16T12:58:18Z<br>RT @kogashigeaki: JKT48がAKB48からBTS路線に転向して成功したインドネシア
 日本自動車メーカーの牙城だが
 韓国の現代自動車がBTSと組み、バカ売れEVのIONIQ5で参戦、中国メーカーも追随
-世界一の電池メーカー中国CATLも韓国LGも工場をインドネ…<br><br><br>
+世界一の電池メーカー中国CATLも韓国LGも工場をインドネ…<br><br><br>北京时间2022-12-16T12:57:23Z<br>RT @drei_Ritter: @TakehikoTakash1 ひと月前に日経でも取り上げているEV普及。
+インドネシアだけに限らず東南アジア諸国はこの傾向。
+シェア争いフェーズ
+https://t.co/sscK5a0J1T<br><br><br>
