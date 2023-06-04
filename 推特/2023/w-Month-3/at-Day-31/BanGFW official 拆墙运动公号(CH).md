@@ -20,4 +20,4 @@ Following agreements on special services interac…<br><br><br>北京时间2023-
 要结束中共暴政
 #拆墙
 确实是重点
-我相信，所有从事推动中国自由人权民主宪政进程的人，都会在拆除中共网络柏林墙的努力中一起尽力🙏🌹<br><br><br>
+我相信，所有从事推动中国自由人权民主宪政进程的人，都会在拆除中共网络柏林墙的努力中一起尽力🙏🌹<br><br><br>北京时间2023-03-31T08:29:32Z<br>RT @sanchuanzhoumu: @zaobaosg 拆墙吧<br><br><br>
