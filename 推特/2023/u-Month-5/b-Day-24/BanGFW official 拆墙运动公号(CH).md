@@ -14,4 +14,5 @@ https://t.co/4MZbZ6VtTt https://t.co/5fwHOXyND1<br><img src='/temp/image/2023/u-
 #拆墙运动 #BanGFW
 
  https://t.co/UtrnDrao7m<br><br><br>北京时间2023-05-24T13:09:24Z<br>RT @EvelynZworld: 突发奇想，要不六四那天各国志愿者组织个撒传单快闪活动？
-留言报名拉群哈～<br><br><br>
+留言报名拉群哈～<br><br><br>北京时间2023-05-24T12:35:10Z<br>公开信：劝中国同胞勿再闯南美雨林偷渡美国 · 你我狠心反共3年搞拆墙运动都可成开国英雄 · 高空抛洒拆墙传单就能起到原子弹级杀伤力
+ #拆墙运动  #BanGFW #GreatFirewall https://t.co/rPxCFrflib<br><img src='/temp/image/2023/u-Month-5/1661229327286157312_0.jpg' width='450' height='500'><br><br>
