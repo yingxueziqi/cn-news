@@ -26,4 +26,7 @@ Vice minister of CCP police has ordered skilled cybe…<br><br><br>北京时间2
 
 刚从内线获得通知，公安局副部长近日已经下令，组织各省骨干网警进京与本运动进行1个月专项会战。
 
-#拆墙 人将请 #恶人榜 战友，日夜不停问候公安部11局，再邀请国际媒体采访，还…<br><br><br>
+#拆墙 人将请 #恶人榜 战友，日夜不停问候公安部11局，再邀请国际媒体采访，还…<br><br><br>北京时间2023-03-31T01:26:15Z<br>RT @Ban_GFW: 【Please join #BanGFW protest to tear down world's largest Internet Berlin Wall】
+
+ #拆墙 #BanTikTok  #CCP
+Let's follow Myanmar wa…<br><br><br>
