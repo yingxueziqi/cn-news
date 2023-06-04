@@ -5,4 +5,6 @@
 感谢越南版 #编程随想 Phamtayson新闻网报道了本 #拆墙运动 ，中越党国和儒家文化极相似！但中共武力威胁导致越南人穷困数十年，越共虽偶有关键词审查，但并没禁绝Google、Facebook、Twit…<br><br><br>北京时间2023-03-25T08:29:34Z<br>RT @lelefarley: 中国特色社会主义AI：https://t.co/1zrg94ilp6 https://t.co/eIs5bdsvkZ<br><img src='/temp/video/2023/w-Month-3/az-Day-25/BanGFW2/1639424247847329792_0.jpg' width='450' height='500'><br><br>北京时间2023-03-25T08:13:28Z<br>RT @kamiya_mamoru: 编程随想被捕，怎么可能少了我们爆破团呢？审判的法官既然已经出道，那么这次我们来全家户口整整齐齐。
 
 ⬇️详细⬇️
-https://t.co/LRTyOg9E5Y<br><br><br>
+https://t.co/LRTyOg9E5Y<br><br><br>北京时间2023-03-25T08:04:14Z<br>RT @EndGFW2: 【拆墙·翻墙·推墙---拆墙人用国际笔杆子和刀把子制裁土共】
+
+“推墙”就是“打倒X党”，口号大难实施。翻墙是用技术建立VPN来绕防火墙，是与建墙同年诞生的大生意，但易被封禁和抓捕。 #拆墙运动 是治根，在社交网站打国际舆论战，并在各国议会和海牙国际刑…<br><br><br>
