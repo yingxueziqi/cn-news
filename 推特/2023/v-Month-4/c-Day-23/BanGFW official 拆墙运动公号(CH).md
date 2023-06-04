@@ -1,1 +1,1 @@
-北京时间2023-04-23T12:31:50Z<br>RT @Ban_GFW: The 1300-page history book can really broaden our horizon, CCP has totally ruined Chinese history and  culture in the past 74…<br><br><br>
+北京时间2023-04-23T12:31:50Z<br>RT @Ban_GFW: The 1300-page history book can really broaden our horizon, CCP has totally ruined Chinese history and  culture in the past 74…<br><br><br>北京时间2023-04-23T04:22:57Z<br>RT @EndGFW2: 拆墙运动的推特中文公号将转移至另一账号 @BanGFW2 ，推特英文公号仍然是 @Ban_GFW ，另有Facebook: BanGFW ，Youtube: BanGFW，敬请注意！本运动接下来将以20亿人的英文圈为主，欢迎更多英语达人来参与。 htt…<br><br><br>
