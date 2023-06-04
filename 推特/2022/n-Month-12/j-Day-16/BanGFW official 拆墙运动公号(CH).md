@@ -5,4 +5,5 @@ Tapi hanya menyebut KOMUNISME. Tak…<br><br><br>北京时间2022-12-16T17:12:14
 "Setiap Orang yang menyebarkan atau mengembangkan ajaran komunisme/marxisme-leninisme atau…<br><br><br>北京时间2022-12-16T15:14:29Z<br>RT @mainichi: EEZ内に中国船計40隻　フィリピン「領土放棄しない」と声明
 https://t.co/QNj2JU9OJc
 
-フィリピン国防省は14日、南シナ海にある同国のEEZ内に中国船団が集結しているとして「深い懸念」を表明しました。大半が漁船だが、海上民兵の…<br><br><br>
+フィリピン国防省は14日、南シナ海にある同国のEEZ内に中国船団が集結しているとして「深い懸念」を表明しました。大半が漁船だが、海上民兵の…<br><br><br>北京时间2022-12-16T15:03:46Z<br>RT @xavikota: 日本語訳記事アルヨ
+https://t.co/BsXjbYT44z<br><br><br>
