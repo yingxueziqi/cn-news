@@ -1,22 +1,3 @@
-北京时间2023-06-02T21:08:19Z<br>后续
-网传在孩子母亲跳楼后，孩子父亲也跟着跳楼，后被担架抬出。 https://t.co/nCnqChHSMm<br><img src='/temp/image/2023/t-Month-6/1664619955327844353_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T20:49:02Z<br>网友投稿
-6月2日，吉林某高校招募志愿者，在3、4日晚上对校园进行安全巡逻。 https://t.co/EmPjlIi0E9<br><img src='/temp/image/2023/t-Month-6/1664615103419777027_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T20:11:48Z<br>网友投稿
-6月2日，抖音向各大网红KOL和品牌方发布内部通知，要求3，4，5三天禁止发布推广
-评论、转发严禁出现“点蜡烛”、“含义不明的数字”、“坦克”、“老照片”、“成龙/谭咏麟/曾志伟/梅艳芳等香港艺人”、“含人群聚集/维多利亚港/天安门/颐和园/烛光/物体排成一排”等元素。
-同时转发数，评论数，点赞数都不得是敏感数字。<br><img src='/temp/image/2023/t-Month-6/1664605733453807616_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T20:10:01Z<br>网友投稿
-6月1日，有网友发布视频，海南某村全体村民集体投票罢免村干部，罢免成功后又是欢呼又是敲锣放鞭炮庆祝。 https://t.co/1ilkTs66zx<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664605285925765122_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T19:25:25Z<br>网友投稿
-6月2日，多方消息称，此前“小学生校内被老师开车撞死”事件中的小孩母亲坠楼身亡。
-据悉，遭遇严重网暴是其自杀的重要原因之一。 https://t.co/oPlvXXp1jz<br><img src='/temp/image/2023/t-Month-6/1664594059896270848_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664594059896270848_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:56:45Z<br>网友投稿
-6月1日，上海中侨职业技术大学强制全校学生把宿舍清空，以便租给外面夏令营牟利。不管学生能否带走一律清空不然把私人物品当垃圾扔掉，引发学生强烈不满。 https://t.co/S31QcDfjxX<br><img src='/temp/image/2023/t-Month-6/1664586845525536775_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664586845525536775_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664586845525536775_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664586845525536775_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:45:49Z<br>警方通报 https://t.co/TkOTJMAfYL<br><img src='/temp/image/2023/t-Month-6/1664584096259923968_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:42:20Z<br>视频爆火后，作者被指责“50万”，同时视频被限流。但是评论区还是被广大理性网友占据。
-“如果你看到这个视频觉得作者是在搞分裂，就代表你离人民已经很远了”
-“对国家日益富强的自豪感与对自身生活的失望感正在撕裂中下层人民的归属感” https://t.co/PZUuAAOdo3<br><img src='/temp/image/2023/t-Month-6/1664583219721715712_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:37:08Z<br>网友投稿
-“看苍生”
-6月1日，一部名为《人民》的视频在B站爆火
-视频中平凡人生活中的艰辛与快乐引发大量网友共鸣。 https://t.co/jUHDza1s7c<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664581910675292160_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:31:43Z<br>网友投稿
-一名小红书网友发帖称，自己的单位如果学习强国不达标要扣钱。 https://t.co/G8eobXdmaA<br><img src='/temp/image/2023/t-Month-6/1664580547924967424_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_2.jpg' width='450' height='500'><br><br>北京时间2023-06-02T06:45:18Z<br>RT @chumacn: 拼多多的事情，我可以讲两句，其实拼多多自己并不亏损，而且血赚，我是Temu第一波邀请的200家商家之一。拼多多当时给的玩法是，定价权不在我们，在他们的运营手上，我们发样品，然后他们发价格。愿意玩的就一起，不愿意的自己滚蛋，第一波群里骂人的不在少数，但是…<br><br><br>北京时间2023-06-02T05:17:56Z<br>网友投稿
-6月1日，复旦大学教授曲卫国发文感叹韩国地铁和火车站不设安检，被指“公知将地铁不设安检上升到文化程度”。 https://t.co/zChuJwDRUq<br><img src='/temp/image/2023/t-Month-6/1664380786168963073_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664380786168963073_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664380786168963073_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664380786168963073_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T04:33:56Z<br>网友投稿
-6月1日消息，中国高考报名人数再创新高，达到1291万。 https://t.co/7J5XprKSTe<br><img src='/temp/image/2023/t-Month-6/1664369712849907712_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T03:19:54Z<br>对于把国家和政府混淆，把针对政府的负面信息混淆成抹黑中国的人，这本来是一个懒得去驳斥的话题，只是正好借此说点心里话。
-我很欣慰和自豪的一点是，很多发出去的事情最后都会被解决（虽然有时候则是投稿人被解决），就说明了舆论监督有价值，有意义，并且有用。
-正因如此，无论承受什么样的诋毁，后果和风险，都是我可以接受的并值得为之坚持的事情。
-即使这个账号不在了，也会有下一个账号出现，因为在言论自由这件事情上，公权力永远无法扼杀人们说话的权利。封禁一个词，会出现一万个词。封禁一个号，会出现十万个号。
-十四亿人十四亿双耳朵十四亿双眼睛十四亿张嘴，你封的过来吗？<br><br><br>北京时间2023-06-02T03:02:17Z<br>既然可以认识到“哪个国家能没点负面的东西”，怎么见到别人发点负面的东西就觉得别人是汉奸间谍呢？ https://t.co/tjagEd7lxS<br><img src='/temp/image/2023/t-Month-6/1664346647952760857_0.jpg' width='450' height='500'><br><br>
+北京时间2023-06-02T23:36:28Z<br>现场一名工作人员表示，分管教育的（没听懂）马上到学校来听取大家的诉求。
+现在（没听懂）局人和教育局领导正在协商解决方案，马上就会来 https://t.co/fT5cPRa5dp<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664657241281110020_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T23:28:18Z<br>此刻，在学校门口，警察在跟家长们交涉
+校方暂时没有出面。 https://t.co/NEMETLcKy1<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664655182829895682_0.jpg' width='450' height='500'><br><br>
