@@ -1,0 +1,2 @@
+北京时间2023-04-06T16:19:30Z<br>网友投稿
+4月4日下午，4名游客在天门山景区山顶西线的玻璃栈道上翻越安全护栏跳崖，其中三人跳下，一人被及时阻止。但因其在跳崖前已经服毒，经抢救无效死亡。… https://t.co/yp0IPTqnuy https://t.co/OaNqFm1Ukf<br><img src='/temp/image/2023/v-Month-4/1643891163311554560_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643891163311554560_1.jpg' width='450' height='500'><br><br>
