@@ -5,4 +5,8 @@
 
 We sincerely recruit 100 pioneers to lead others to tear down CCP’s Interne…<br><br><br>北京时间2023-04-08T12:19:55Z<br>RT @Ban_GFW: Initiators of #BangGFW Movement, without money and tech, why we can easily scare CCP top officials in 2 weeks?  We know Englis…<br><br><br>北京时间2023-04-08T02:26:17Z<br>RT @Ban_GFW: Let's join online seminar to tear down CCP Internet Berlin Wall (#GreatFirewall) if ur Chinese is good. It's world's 1st inter…<br><br><br>北京时间2023-04-08T02:07:53Z<br>RT @Ban_GFW: Great news! 
 
-Our 1st online seminar also world's 1st one, on tearing down CCP Internet Berlin Wall (GFW) successfully attract…<br><br><br>
+Our 1st online seminar also world's 1st one, on tearing down CCP Internet Berlin Wall (GFW) successfully attract…<br><br><br>北京时间2023-04-08T01:22:09Z<br>RT @EndGFW2: 【喜报：全球拆墙会议首秀近4小时 · 好几百人旁听 · 最高峰时150人】
+
+（1/5）非常感谢主持人Lucy长达4小时义工工作，也感谢 #拆墙 粉和共警们出席！
+
+本次讨论很激烈，务虚成份居多，正积累经验。以后请要谈区块链、私建VPN技术大咖慎重入群…<br><br><br>
