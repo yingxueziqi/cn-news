@@ -5,4 +5,9 @@
 同事称，其妻子为小学老师，听说班里有几个农村学生寄宿在他家。
 目前，该名科长已经被公安机关刑事拘留。 https://t.co/EaTKcTV5ND<br><img src='/temp/image/2023/v-Month-4/1644941397856845824_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1644941397856845824_1.jpg' width='450' height='500'><br><br>北京时间2023-04-09T13:47:56Z<br>网友投稿
 4月9日，李庄律师在微博上展示了一种使用牙刷和透明胶带进行刑讯逼供的方法，来自4月8日邢台法庭上的被告人当庭控诉。 https://t.co/LXHgx5GO2u https://t.co/FI9RrxxAbk<br><img src='/temp/video/2023/v-Month-4/q-Day-09/whyyoutouzhele/1644940185841352705_0.jpg' width='450' height='500'><br><br>北京时间2023-04-09T13:39:30Z<br>网友投稿
-成都文殊院 https://t.co/nXr0RsKETf<br><img src='/temp/image/2023/v-Month-4/1644938064458907649_0.jpg' width='450' height='500'><br><br>
+成都文殊院 https://t.co/nXr0RsKETf<br><img src='/temp/image/2023/v-Month-4/1644938064458907649_0.jpg' width='450' height='500'><br><br>北京时间2023-04-09T11:14:47Z<br>RT @ngocneng: 阮晓寰案件，你可以做的几件事
+——如何支持和声援被捕者【案例更新版】
+
+https://t.co/1eVB1wrmnq
+
+在我们发出了《从阮晓寰到“编程随想”：一个普通公民和“极客”如何成了“国家的敌人”？》这篇报道后，收到很多读者的留言，希望支持和…<br><br><br>
