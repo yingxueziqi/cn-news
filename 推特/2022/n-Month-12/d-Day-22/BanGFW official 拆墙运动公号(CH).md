@@ -1,6 +1,1 @@
-北京时间2022-12-22T19:33:27Z<br>WION电视台2022年度最佳突发新闻：斯里兰卡经济危机<br><br><br>北京时间2022-12-22T19:11:06Z<br>RT @Sankei_news: 中国支援の高速鉄道建設で死亡事故　インドネシア、工期に影響も
- https://t.co/HSRBEBlV31 
-
-地元シンクタンクは「（当初の）予算を大幅に上回る中、完成を急ぐあまり安全性が損なわれている」と指摘。<br><br><br>北京时间2022-12-22T13:27:57Z<br>RT @ZhentingLiu: รถยนต์ญี่ปุ่นที่มีส่วนแบ่งตลาดในไทย 90%  กำลังเผชิญกับการแข่งขันอย่างดุเดือดกับรถยนต์ไฟฟ้า(EV)จากจีน ที่เปิดตัวหลายรุ่น
-
-(…<br><br><br>北京时间2022-12-22T11:52:52Z<br>RT @RafaJBuendia: Indonesia ban of bauxite exports creates a problem for China. It currently imports some 20 million tons from Indonesia ht…<br><br><br>
+北京时间2022-12-22T04:06:49Z<br>RT @EconomicTimes: A Chinese company has announced plans to build the massive Myitkyina Economic Development Zone on about 4,700 acres of l…<br><br><br>
