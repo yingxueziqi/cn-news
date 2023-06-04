@@ -5,4 +5,6 @@
 一辆面包车发生爆炸，并引燃了周围车辆，根据媒体报道事件造成4人伤亡。
 https://t.co/gunI1GdLJJ<br><img src='/temp/video/2023/u-Month-5/o-Day-11/whyyoutouzhele/1656623303820296193_0.jpg' width='450' height='500'><br><br>北京时间2023-05-11T19:06:58Z<br>RT @ruanxiaohu32309: An influential Chinese blogger disappeared from the internet. This woman says she knows why
 By Nectar Gan, CNN
-Updated…<br><br><br>
+Updated…<br><br><br>北京时间2023-05-11T17:59:12Z<br>网友投稿
+Vivo和iQOO手机已经将国家反诈中心接入其OriginOS浏览器中。
+有用户在手机浏览器-设置-安全中心中发现证实了这一点。 https://t.co/TCDhFLGbxD https://t.co/Q5zfjqOKpG<br><img src='/temp/image/2023/u-Month-5/1656599829001166848_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656599829001166848_1.jpg' width='450' height='500'><br><br>
