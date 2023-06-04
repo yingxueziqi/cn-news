@@ -14,4 +14,4 @@
 #蔡英文过境纽约，3月29日下午约4点抵达下榻的乐天纽约皇宫(Lotte New York Palace)酒店。
 酒店外有很多当地台侨及少量大陆民主人士到场欢迎，也有当地大陆侨团用巴士组织数百人到场抗…<br><br><br>北京时间2023-03-30T11:24:28Z<br>RT @qiaoxinxin88: @RFA_Chinese 「 诚邀3000万港澳台人参加 #拆墙运动 结束台海战争」
 
-#拆墙 并不需要增1毛钱公共开支，一旦实现，独裁者就陷入了14亿人包围，并诞生民选新政府，两岸战争和军费都免了。港澳台人身于大中华区，从小有自由互联网，对…<br><br><br>
+#拆墙 并不需要增1毛钱公共开支，一旦实现，独裁者就陷入了14亿人包围，并诞生民选新政府，两岸战争和军费都免了。港澳台人身于大中华区，从小有自由互联网，对…<br><br><br>北京时间2023-03-30T10:41:58Z<br>RT @ActivistLittle: Daily anti-coup revolutionary domestic strike by pro-democracy CDMer teachers from Sagaing University of Education as 7…<br><br><br>
