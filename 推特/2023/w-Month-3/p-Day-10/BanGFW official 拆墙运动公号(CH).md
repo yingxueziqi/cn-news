@@ -6,4 +6,8 @@
 #EndGFW #拆墙运动 https://t.co/HdO8PjfNmh<br><img src='/temp/image/2023/w-Month-3/1634190727675772929_0.jpg' width='450' height='500'><br><br>北京时间2023-03-10T12:58:48Z<br>【拆墙签名关系到你是继续三五人游击战还是发动14亿人大反攻】
 #EndGFW
 1987年美国总统在柏林墙下向苏联喊话拆墙，仅2年后这堵屹立30多年的墙就倒塌，此后2年苏联东欧共产党全部倒台。中国拆墙的唯一靠谱路径就是百万人联名、国际媒体报道、多国向中共施压！欢迎点击签名→
-https://t.co/ME9ORMQnkc https://t.co/o5c9dFRxTD<br><img src='/temp/image/2023/w-Month-3/1634056186994753536_0.jpg' width='450' height='500'><br><br>
+https://t.co/ME9ORMQnkc https://t.co/o5c9dFRxTD<br><img src='/temp/image/2023/w-Month-3/1634056186994753536_0.jpg' width='450' height='500'><br><br>北京时间2023-03-10T01:27:19Z<br>为何技术上不可能推倒中共互联网防火墙？
+
+以下是Quora上网络专家们的看法，说直白点，CCP掌握枪杆子，这堵墙在技术是世界最精密的互联网审查系统，这是集国家力量对抗个体。我以前做过不少散兵游勇式的对抗，自建新闻网站等等，但对拆墙的作用其实极小。愚民墙是政治问题！
+
+https://t.co/09dhKv0iBc<br><br><br>
