@@ -1,3 +1,5 @@
 北京时间2023-05-26T21:42:30Z<br>5月26日晚，广东揭阳锡场镇发生持刀砍人事件 https://t.co/HyZ1Bwi93t<br><img src='/temp/image/2023/u-Month-5/1662091843541037059_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662091843541037059_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662091843541037059_2.jpg' width='450' height='500'><br><br>北京时间2023-05-26T21:14:52Z<br>网友投稿
 5月26日，此前在中国爆火的电视剧《狂飙》遭遇网友批斗，指责其宣扬黑社会，为黑社会洗白，故意打压人民警察形象等。… https://t.co/309Ab1z6db https://t.co/5lhGyuyHw3<br><img src='/temp/image/2023/u-Month-5/1662084890634993664_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662084890634993664_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662084890634993664_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662084890634993664_3.jpg' width='450' height='500'><br><br>北京时间2023-05-26T20:46:02Z<br>前情提要
-https://t.co/NtAu6Qdhpw<br><br><br>
+https://t.co/NtAu6Qdhpw<br><br><br>北京时间2023-05-26T20:45:14Z<br>网友投稿
+“反对崇洋媚外”挑战延申至线下
+近日，有浙江网友发现公交广告牌上被人涂鸦仇女言论和仇外言论。 https://t.co/9RkWuZuHD2<br><img src='/temp/image/2023/u-Month-5/1662077431518224384_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662077431518224384_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1662077431518224384_2.jpg' width='450' height='500'><br><br>
