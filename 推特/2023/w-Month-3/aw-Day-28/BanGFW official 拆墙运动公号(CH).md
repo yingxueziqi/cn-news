@@ -1,3 +1,5 @@
 北京时间2023-03-28T22:00:36Z<br>「请你来为 #禁防火墙 运动来设计logo啦！」
 
-把TikTok和GFW在粗红框同框，突出文字含义，透明或白色为底色，有较高清晰度，可作为在各大社交平台的头像，让西方人人一看就能从 #BanTikTok 联想 #BanGFW，若能在红框上加镰刀锤子花纹则更好。还有设计一个能作为主页大图的版本。 https://t.co/qiwIWacUdg<br><img src='/temp/image/2023/w-Month-3/1640715513767792644_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640715513767792644_1.jpg' width='450' height='500'><br><br>北京时间2023-03-28T21:31:16Z<br>挺好！涉嫌故意制毒和泄毒罪，让世界停摆3年，这账请继续追下去，若定罪则少说得赔几万亿美元！钱没了，独裁者就game over！<br><br><br>北京时间2023-03-28T21:18:19Z<br>党国G点多如牛毛、无处不敏感，请大家都来狠蹭英文圈流量！#BanTiktok #BanAlibaba #BanWeibo<br><br><br>
+把TikTok和GFW在粗红框同框，突出文字含义，透明或白色为底色，有较高清晰度，可作为在各大社交平台的头像，让西方人人一看就能从 #BanTikTok 联想 #BanGFW，若能在红框上加镰刀锤子花纹则更好。还有设计一个能作为主页大图的版本。 https://t.co/qiwIWacUdg<br><img src='/temp/image/2023/w-Month-3/1640715513767792644_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640715513767792644_1.jpg' width='450' height='500'><br><br>北京时间2023-03-28T21:31:16Z<br>挺好！涉嫌故意制毒和泄毒罪，让世界停摆3年，这账请继续追下去，若定罪则少说得赔几万亿美元！钱没了，独裁者就game over！<br><br><br>北京时间2023-03-28T21:18:19Z<br>党国G点多如牛毛、无处不敏感，请大家都来狠蹭英文圈流量！#BanTiktok #BanAlibaba #BanWeibo<br><br><br>北京时间2023-03-28T21:05:35Z<br>RT @GermsofCCP: #TikTok is not the only Chinese spying app, #wechat is a bigger problem.
+
+#China #CCPChina #BanTikTok #BanWeChat<br><br><br>
