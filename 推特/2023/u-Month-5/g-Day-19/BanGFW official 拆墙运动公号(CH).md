@@ -15,4 +15,6 @@
 
 律所核心合伙人必须懂中英双语，情感上同情中国的人权事业，在美国有10年以上大型人权类跨国索赔案执业经验，负责代理14亿中国人向美国白宫和企业索赔。
 邮箱：bangfw@protonmail.com
-#BanGFW #拆墙运动 https://t.co/YUFIRv3d4F<br><img src='/temp/image/2023/u-Month-5/1659447741691621376_0.jpg' width='450' height='500'><br><br>
+#BanGFW #拆墙运动 https://t.co/YUFIRv3d4F<br><img src='/temp/image/2023/u-Month-5/1659447741691621376_0.jpg' width='450' height='500'><br><br>北京时间2023-05-19T10:23:24Z<br>「#拆墙运动 粉丝靠走线赴美 • 要搬去硅谷抗议 • 再把建墙者告到联邦最高法院」
+
+不逼一把，白宫一天天真把自己当全球的救世主！先不说国际贸易法和道德伦理，思科、甲骨文、微软等，和白宫，都是中共建GFW、切断10多亿人和60多亿人联系的同犯，打压言论自由，违背了1791年宪法修正案第1款！#BanGFW https://t.co/iAJMrKOeBI<br><img src='/temp/image/2023/u-Month-5/1659384230114377729_0.jpg' width='450' height='500'><br><br>
