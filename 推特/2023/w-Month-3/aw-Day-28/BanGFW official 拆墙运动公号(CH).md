@@ -30,4 +30,5 @@ Both TikTok &amp; GFW are toys of CCP,…<br><br><br>北京时间2023-03-28T03:3
 
 Both TikTok &amp; GFW are toys of CCP, but GFW is world's most sophisticated Internet censo…<br><br><br>北京时间2023-03-28T01:39:12Z<br>RT @Ban_GFW: 【中共的抖音有毒？互联网防火墙危害80亿人利益！】
 
-TikTok 和GFW（互联网防火墙）都是中共的玩具，该墙为世界最大的互联网隔离墙，封禁了Google ChatGPT等31万个网站，切断了14亿人与66亿人联系，造成中国境内动不动仇美仇日。让我们…<br><br><br>
+TikTok 和GFW（互联网防火墙）都是中共的玩具，该墙为世界最大的互联网隔离墙，封禁了Google ChatGPT等31万个网站，切断了14亿人与66亿人联系，造成中国境内动不动仇美仇日。让我们…<br><br><br>北京时间2023-03-28T00:50:18Z<br>RT @Ban_GFW: 「关于”#拆墙运动”改为“#禁墙运动”的更名并招人的通知」
+The movement to tear down CCP Internet Berlin Wall will change its previous name "#EndGFW" to "#…<br><br><br>
