@@ -9,4 +9,6 @@
 上海一24岁女工猝死，丈夫称其每天夜班12个小时，3月工时达到323小时。
 公司表示，公司并没有强制加班，该名女工为“自愿加班”。 https://t.co/tzkmnMeY2H<br><img src='/temp/image/2023/v-Month-4/1651385770249207809_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651385770249207809_1.jpg' width='450' height='500'><br><br>北京时间2023-04-27T08:15:24Z<br>https://t.co/iu6Pg31HGA<br><img src='/temp/image/2023/v-Month-4/1651379482010189825_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1651379482010189825_1.jpg' width='450' height='500'><br><br>北京时间2023-04-27T08:14:46Z<br>网友投稿
 中国军舰在苏丹撤侨行动现场。
-根据有关消息，截至目前已有1100多名中国人从苏丹安全撤离。 https://t.co/uGTTlxE43j<br><img src='/temp/video/2023/v-Month-4/ax-Day-27/whyyoutouzhele/1651379323968925699_0.jpg' width='450' height='500'><br><br>
+根据有关消息，截至目前已有1100多名中国人从苏丹安全撤离。 https://t.co/uGTTlxE43j<br><img src='/temp/video/2023/v-Month-4/ax-Day-27/whyyoutouzhele/1651379323968925699_0.jpg' width='450' height='500'><br><br>北京时间2023-04-27T08:01:06Z<br>RT @LauraHarth: 非常及时： 欧洲议会成员呼吁欧盟对外国干涉采取协调战略，包括呼吁 "调查据称在[欧洲各国]所设的[中国]警务站，并采取协调行动打击与中国统战部在欧洲有关的任何非法活动。"
+
+@SafeguardDefend @ipacglobal https:/…<br><br><br>
