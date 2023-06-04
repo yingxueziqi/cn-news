@@ -5,4 +5,4 @@
 下述1个英文帖就能讲清要点，也请你广泛转发或调整局部字眼再发帖！
 
 行文重点要落在危害全球利益上，绝非1万公里外别国内政，这样各国选民才会迫使本国政客重点推进拆墙议案。
-@court_criminal @POTUS @SpeakerMcCarthy @RishiSunak #EndGFW #拆墙运动<br><br><br>
+@court_criminal @POTUS @SpeakerMcCarthy @RishiSunak #EndGFW #拆墙运动<br><br><br>北京时间2023-03-19T21:46:01Z<br>CCP Internet Berlin Wall (GFW) commits crimes against 8 billion people, as since 2000, it has blocked 310,000 websites (Google Youtube) &amp; connections between 1.4 billion Chinese &amp; others, causes endless conflicts.Let's bring it to the Int'l Criminal Court! #EndGFW #拆墙运动 https://t.co/NkXldEQDpU<br><img src='/temp/image/2023/w-Month-3/1637450352579739649_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1637450352579739649_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1637450352579739649_2.jpg' width='450' height='500'><br><br>
