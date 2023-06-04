@@ -10,4 +10,6 @@ I love global fri…<br><br><br>北京时间2023-04-03T14:21:11Z<br>RT @Ban_GFW:
 拆呀…<br><br><br>北京时间2023-04-03T12:01:05Z<br>RT @Ban_GFW: 【Our official LOGO is born, let's use it as our new head photo】
 
 Great thanks to works from our Canadian volunteers!
-Let's alw…<br><br><br>
+Let's alw…<br><br><br>北京时间2023-04-03T11:41:51Z<br>RT @Ban_GFW: 【Bilingual description of our aim 拆墙运动宗旨双语陈词】
+
+Let's ban world's largest Internet censorship system GFW, it forces 1.4 billion…<br><br><br>
