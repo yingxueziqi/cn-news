@@ -1,0 +1,4 @@
+北京时间2023-04-25T21:45:31Z<br>网友投稿
+一名八年级初中的历史老师发布抖音称，疫情相关内容已经写入初中教材。 https://t.co/nFlQx2VD4f<br><img src='/temp/image/2023/v-Month-4/1650858580080467968_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650858580080467968_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650858580080467968_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650858580080467968_3.jpg' width='450' height='500'><br><br>北京时间2023-04-25T21:42:07Z<br>后续：今晚，《惊天救援》官博发布声明
+称在当天观影活动中现场氛围良好，没有出现网络上描述的相关问题。
+电影和主创十分感谢同学们的分析，珍惜与观众交流的机会，同时也希望开放的讨论和分析都能基于事实。 https://t.co/FewcyXTvkB<br><img src='/temp/image/2023/v-Month-4/1650857724849319937_0.jpg' width='450' height='500'><br><br>
