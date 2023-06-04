@@ -11,4 +11,8 @@
 中国互联网防火墙，隔绝14亿人和66亿人信息，引起海量误解和冲突，属于反人类滔天大罪。但大家对拆墙还没达成高度共识，只是反复刷习家称帝而干着急。说服更多人翻身当拆墙人，就是你我可全面打击中共的绝招。小事先行！ https://t.co/XFheuAOKrd<br><img src='/temp/image/2023/w-Month-3/1635131245280755712_0.jpg' width='450' height='500'><br><br>北京时间2023-03-13T11:47:40Z<br>为何网上共同签名很重要？
 
 解决社会问题，联名特别是网上联名已风行欧美，在亚洲却还较弱，但包括Change在内的网签平台，提供了快速获得亿万人支持的渠道，难度最低！最近甄子丹丑事又提高了中文圈网签搞事的知名度，包括而不限于上街游行、使馆举牌、散发传单等线下方式。
-#EndGFW #拆墙运动 https://t.co/Tu6CmhRHFt<br><img src='/temp/image/2023/w-Month-3/1635125447204941824_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635125447204941824_1.jpg' width='450' height='500'><br><br>
+#EndGFW #拆墙运动 https://t.co/Tu6CmhRHFt<br><img src='/temp/image/2023/w-Month-3/1635125447204941824_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635125447204941824_1.jpg' width='450' height='500'><br><br>北京时间2023-03-13T11:11:53Z<br>「让我们从翻墙人、润墙人翻身当拆墙人」
+
+东南亚独裁腐败家族，也都没封死Google、Facebook、Twitter，中共封31万个网站，这早已引起各国网上痛骂，就是不用Google网一周，能让很多他们人生不如死！自由的网络和呼吸一样重要，让我们一起都来当拆墙人，审查不停、拆墙不止！
+
+#EndGFW #拆墙运动 https://t.co/nlEu3S72O3<br><img src='/temp/image/2023/w-Month-3/1635116440234913793_0.jpg' width='450' height='500'><br><br>
