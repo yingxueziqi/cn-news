@@ -22,4 +22,4 @@ https://t.co/uexzrcSeUr<br><br><br>北京时间2023-03-11T02:48:36Z<br>请愿标
 我再修改下措辞，发个类似请愿，看它是不是学会CCP那套审查风了！<br><br><br>北京时间2023-03-11T02:07:53Z<br>【拆墙运动请愿页面被Change网站删了】
 
 我前两天就预感到有可能会出现这风险，毕竟一个普通的商业公司平台，不愿去背负巨大的派系纠纷和政治压力。但拆墙的事肯定不能停，还有什么替代性方案么？波罗的海3个小国，1989年曾动员了200万人手拉手结成675公里人链抗议苏联非法入侵 。
-#EndGFW #拆墙运动 https://t.co/IWMZFX09xb<br><img src='/temp/image/2023/w-Month-3/1634254764828663808_0.jpg' width='450' height='500'><br><br>
+#EndGFW #拆墙运动 https://t.co/IWMZFX09xb<br><img src='/temp/image/2023/w-Month-3/1634254764828663808_0.jpg' width='450' height='500'><br><br>北京时间2023-03-11T01:13:55Z<br>RT @FHtxWIgJMI3yoLO: 正常人与小粉红的思想对比👇 https://t.co/31p0jlyQjW<br><img src='/temp/image/2023/w-Month-3/1634241184536363008_0.jpg' width='450' height='500'><br><br>
