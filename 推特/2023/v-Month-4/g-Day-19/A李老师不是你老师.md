@@ -1,3 +1,5 @@
 北京时间2023-04-19T23:55:12Z<br>警情通报，事件造成7人受伤，其中一人抢救无效死亡。 https://t.co/AZbzxJruAy<br><img src='/temp/image/2023/v-Month-4/1648716890024337411_0.jpg' width='450' height='500'><br><br>北京时间2023-04-19T23:53:56Z<br>现场照片 https://t.co/yAFEcGYLRx<br><img src='/temp/image/2023/v-Month-4/1648716569000681474_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648716569000681474_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648716569000681474_2.jpg' width='450' height='500'><br><br>北京时间2023-04-19T23:52:16Z<br>后续更新
 山科大老师回应称人已被控制。
-黄岛区辛安派出所民警表示无可奉告，过几天会有通报。 https://t.co/7cTLM4ysLy<br><img src='/temp/image/2023/v-Month-4/1648716148618280962_0.jpg' width='450' height='500'><br><br>
+黄岛区辛安派出所民警表示无可奉告，过几天会有通报。 https://t.co/7cTLM4ysLy<br><img src='/temp/image/2023/v-Month-4/1648716148618280962_0.jpg' width='450' height='500'><br><br>北京时间2023-04-19T21:07:58Z<br>网友投稿
+网传山东科技大学北门今天下午发生持刀捅人事件。
+据称是一个学生被开除后回来报复学校。 https://t.co/Ulyz4YMZl8<br><img src='/temp/image/2023/v-Month-4/1648674804554256386_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648674804554256386_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648674804554256386_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1648674804554256386_3.jpg' width='450' height='500'><br><br>
