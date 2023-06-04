@@ -23,4 +23,5 @@
 “对国家日益富强的自豪感与对自身生活的失望感正在撕裂中下层人民的归属感” https://t.co/PZUuAAOdo3<br><img src='/temp/image/2023/t-Month-6/1664583219721715712_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664583219721715712_3.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:37:08Z<br>网友投稿
 “看苍生”
 6月1日，一部名为《人民》的视频在B站爆火
-视频中平凡人生活中的艰辛与快乐引发大量网友共鸣。 https://t.co/jUHDza1s7c<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664581910675292160_0.jpg' width='450' height='500'><br><br>
+视频中平凡人生活中的艰辛与快乐引发大量网友共鸣。 https://t.co/jUHDza1s7c<br><img src='/temp/video/2023/t-Month-6/x-Day-02/whyyoutouzhele/1664581910675292160_0.jpg' width='450' height='500'><br><br>北京时间2023-06-02T18:31:43Z<br>网友投稿
+一名小红书网友发帖称，自己的单位如果学习强国不达标要扣钱。 https://t.co/G8eobXdmaA<br><img src='/temp/image/2023/t-Month-6/1664580547924967424_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664580547924967424_2.jpg' width='450' height='500'><br><br>
