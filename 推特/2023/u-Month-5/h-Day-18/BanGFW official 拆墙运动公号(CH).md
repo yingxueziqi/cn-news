@@ -12,4 +12,6 @@ We, 1.4 billion Chinese always #StandWithUkraine️  &amp; respect lawful righ�
 
 【No.001 suspect in building #GreatFirewall of #Project2259 】
 Born in 1956, vice-minister level official, member of Chinese Academy of Sciences
-#拆墙运动 #BanGFW #反人类罪 https://t.co/znC8a3YNaB<br><img src='/temp/image/2023/u-Month-5/1659041057794064384_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659041057794064384_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659041057794064384_2.jpg' width='450' height='500'><br><br>
+#拆墙运动 #BanGFW #反人类罪 https://t.co/znC8a3YNaB<br><img src='/temp/image/2023/u-Month-5/1659041057794064384_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659041057794064384_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659041057794064384_2.jpg' width='450' height='500'><br><br>北京时间2023-05-18T11:02:31Z<br>#拆墙运动 吓尿中共？公安部正以反电诈为名收缴中国各类翻墙软件
+When scared, the Chinese Communist Party are launching national crackdown enforcement on VPNs, by which Chinese can visit Google YouTube Twitter.
+#BanGFW #防火墙 https://t.co/diL7krm5cd<br><img src='/temp/image/2023/u-Month-5/1659031684208271363_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659031684208271363_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1659031684208271363_2.jpg' width='450' height='500'><br><br>
