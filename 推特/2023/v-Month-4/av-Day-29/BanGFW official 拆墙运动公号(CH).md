@@ -5,4 +5,8 @@
 
 英文版：
 https://t.co/m8KfoyxLR9
-中文版：https://t.co/mzC3DhfPaO https://t.co/IJkp6cWOYe<br><img src='/temp/image/2023/v-Month-4/1652128548185047040_0.jpg' width='450' height='500'><br><br>
+中文版：https://t.co/mzC3DhfPaO https://t.co/IJkp6cWOYe<br><img src='/temp/image/2023/v-Month-4/1652128548185047040_0.jpg' width='450' height='500'><br><br>北京时间2023-04-29T09:47:40Z<br>RT @Jwang312: #拆墙 #拆墙运动 #BanGFW 
+【呼吁诸位仁人义士声援拆墙运动】
+【呼吁更多人支持在国际刑事法庭审判方滨兴和习近平】
+
+中共对中国人人权侵犯最严重的就是对言论自由的侵犯。中国人不能集会，不能自由摄取信息，甚至会因言获罪… https://t.c…<br><br><br>
