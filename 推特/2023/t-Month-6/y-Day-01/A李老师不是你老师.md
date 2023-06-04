@@ -1,0 +1,2 @@
+北京时间2023-06-01T22:42:11Z<br>网友投稿
+5月30日，安徽理工大学有大四学生跳楼自杀，原因疑似为答辩未过。 https://t.co/xnoL6csQWd<br><img src='/temp/image/2023/t-Month-6/1664281192357855233_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1664281192357855233_1.jpg' width='450' height='500'><br><br>北京时间2023-06-01T22:18:36Z<br>6月1日晚，南昌大学前湖校区环境楼着火 https://t.co/BgM0lUDwhm<br><img src='/temp/video/2023/t-Month-6/y-Day-01/whyyoutouzhele/1664275257698680832_0.jpg' width='450' height='500'><br><br>
