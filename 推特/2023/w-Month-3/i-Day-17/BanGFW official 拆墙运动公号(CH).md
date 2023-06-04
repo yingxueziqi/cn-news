@@ -1,2 +1,2 @@
 北京时间2023-03-17T21:44:25Z<br>这个建造中国互联网愚民墙的最高执行官，中共之后应怎样处置？
-#EndGFW #互联网防火墙<br><br><br>北京时间2023-03-17T21:35:17Z<br>RT @dudiaohan1: 知道为什么中共筑建互联网高高的防火墙了吧！！！！ https://t.co/FcUn5V3NV5<br><img src='/temp/image/2023/w-Month-3/1636722876245250048_0.jpg' width='450' height='500'><br><br>
+#EndGFW #互联网防火墙<br><br><br>北京时间2023-03-17T21:35:17Z<br>RT @dudiaohan1: 知道为什么中共筑建互联网高高的防火墙了吧！！！！ https://t.co/FcUn5V3NV5<br><img src='/temp/image/2023/w-Month-3/1636722876245250048_0.jpg' width='450' height='500'><br><br>北京时间2023-03-17T16:37:46Z<br>RT @YueMillward: 我們在中國🇨🇳美國🇺🇸台灣🇹🇼都生活過，觀察各國孩子們在遊樂場中的行為感觸良多。… https://t.co/amCPeWxnIk<br><br><br>
