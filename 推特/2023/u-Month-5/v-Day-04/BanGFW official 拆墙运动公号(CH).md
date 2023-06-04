@@ -27,4 +27,6 @@
 群策群力献主张
 国际法庭告大状
 制裁那罪恶的土匪党 https://t.co/6pdHcFZC7o<br><img src='/temp/video/2023/u-Month-5/v-Day-04/BanGFW2/1653964088261894144_0.jpg' width='450' height='500'><br><br>北京时间2023-05-04T11:13:50Z<br>RT @Ban_GFW: Korea Science Journal: how to use Twitter to challenge CCP's Great Firewall and make a big change in China?
- 2015年韩国科学论文：如何在推特…<br><br><br>
+ 2015年韩国科学论文：如何在推特…<br><br><br>北京时间2023-05-04T10:00:53Z<br>RT @Ban_GFW: 【Qiao Xinxin's &amp; president Barack Obama in Nov. 2012  乔鑫鑫：我曾为奥巴马总统大选站台】  
+
+I knew little about pros and cons of Obama policies…<br><br><br>
