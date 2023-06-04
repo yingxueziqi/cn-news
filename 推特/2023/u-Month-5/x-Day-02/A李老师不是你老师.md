@@ -7,4 +7,5 @@
 5月1日晚，此前因为《阳光快乐孔乙己》爆火的鬼山哥发布微博称，自己为之前的一些不当言论道歉，并称自己现在“信仰已经完全崩塌”，故宣布停更“鬼山哥”系列账号。
 5月2日，有网友发现， 鬼山哥的微博因违反相关法律法规而处于禁言状态。 https://t.co/TVeb9QdjqU<br><img src='/temp/image/2023/u-Month-5/1653394086781501443_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653394086781501443_1.jpg' width='450' height='500'><br><br>北京时间2023-05-02T20:12:29Z<br>网友投稿
 5月1日，山东淄博
-4岁的孩子看见排队吃烧烤的人群，向妈妈发问“这是在做核酸吗？” https://t.co/2fNeR9o4ts<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653371882068926464_0.jpg' width='450' height='500'><br><br>
+4岁的孩子看见排队吃烧烤的人群，向妈妈发问“这是在做核酸吗？” https://t.co/2fNeR9o4ts<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653371882068926464_0.jpg' width='450' height='500'><br><br>北京时间2023-05-02T20:09:38Z<br>网友投稿
+河南省新乡市经开区的城中村改造过程中张贴威胁性标语，引发网友讨论。 https://t.co/sImLCsD3Hp<br><img src='/temp/image/2023/u-Month-5/1653371164989825030_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653371164989825030_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653371164989825030_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1653371164989825030_3.jpg' width='450' height='500'><br><br>
