@@ -1,12 +1,4 @@
-北京时间2023-06-04T13:59:29Z<br>想了想，还是需要友情提示一下大家
-每年的今天都是互联为审查最严格的时期，任何一丁点的影射都会封号禁言，请大家珍惜自己的墙内账号，不要去做无谓的测试，发表言论之前先认清风险。<br><br><br>北京时间2023-06-04T12:50:45Z<br>还有一个
-https://t.co/PtKofkqnmQ<br><br><br>北京时间2023-06-04T12:35:28Z<br>网友投稿
-6月4日中午，英国驻华大使馆微博发布了1989年6月4日的人民日报头版。
-随后微博被删除。 https://t.co/pDdPg6mst3<br><img src='/temp/image/2023/t-Month-6/1665215671347576833_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665215671347576833_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:30:23Z<br>网友投稿
-6月3日，网传各地学校开始下发通知要求上交护照，禁止教职工私自出国。 https://t.co/s6nDO68EyJ<br><img src='/temp/image/2023/t-Month-6/1665214388851077120_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665214388851077120_2.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:08:24Z<br>https://t.co/BvPYiUEd6g<br><img src='/temp/image/2023/t-Month-6/1665208857587580929_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665208857587580929_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T12:08:04Z<br>网友投稿
-6月3日，南昌一高校学生发视频称自己在食堂吃出一颗老鼠头，食堂方面坚称这就是“鸭脖”。
-南昌市高新区市场监督管理局接到情况报告后，第一时间派出执法人员到该校开展调查，问询学校工作人员、食堂负责人、当事学生及相关知情人，对食品留样进行采样检测。
-之后当事人出面澄清，称确实是鸭脖。<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665208772392804353_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T11:43:40Z<br>网友投稿
-6月4日，有网友发帖称自己发图庆祝也被封号。 https://t.co/p7C63hOsZ7<br><img src='/temp/image/2023/t-Month-6/1665202634532306944_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665202634532306944_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T01:40:28Z<br>网友投稿
-6月4日，蜡烛一词在微博上被“蓝海行动”。（指只有认证过微博账号其相关内容才可以被搜索到，普通用户关于蜡烛的发言都不予显示。） https://t.co/cftwvOmJqN<br><img src='/temp/image/2023/t-Month-6/1665050833438875648_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T01:26:36Z<br>德国驻华大使馆完整视频 https://t.co/CnuaTqbvvV<br><img src='/temp/video/2023/t-Month-6/v-Day-04/whyyoutouzhele/1665047342460858368_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T01:01:53Z<br>随后该微博被删除<br><br><br>北京时间2023-06-04T00:58:47Z<br>网友投稿
-6月4日凌晨，德国大使馆发文点亮一根蜡烛 https://t.co/easeU88wZP<br><img src='/temp/image/2023/t-Month-6/1665040344013045760_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1665040344013045760_1.jpg' width='450' height='500'><br><br>北京时间2023-06-04T00:42:24Z<br>网友补充 https://t.co/mzUCbG0XYf<br><img src='/temp/image/2023/t-Month-6/1665036222513790976_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T00:41:30Z<br>网友补充，维护完毕后，系统显示4日无法预约。 https://t.co/5g8Oqv5sYd<br><img src='/temp/image/2023/t-Month-6/1665035993068589058_0.jpg' width='450' height='500'><br><br>
+北京时间2023-06-04T22:00:22Z<br>网友投稿
+6月4日，天安门东地铁站，被没收的鲜花。 https://t.co/uIKX8PW2zG<br><img src='/temp/image/2023/t-Month-6/1665357829362860033_0.jpg' width='450' height='500'><br><br>北京时间2023-06-04T21:39:19Z<br>6月4日晚，香港。
+美国驻香港和澳门总领事馆的每扇窗户都点起蜡烛。
+https://t.co/Z9o6KJib1i https://t.co/mh9eQzf82B https://t.co/SrLf9qLaqU<br><img src='/temp/image/2023/t-Month-6/1665352535454957569_0.jpg' width='450' height='500'><br><br>
