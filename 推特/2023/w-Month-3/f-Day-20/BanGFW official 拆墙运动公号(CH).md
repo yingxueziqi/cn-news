@@ -12,4 +12,7 @@
 
 民运人士个人不是天使，但他们作为推动中国民主的先行者坚持反共几十年所追求的事业是伟大的
 
-您官司已在法院，我也曾尽己所能…<br><br><br>
+您官司已在法院，我也曾尽己所能…<br><br><br>北京时间2023-03-20T03:47:35Z<br>【拆墙先锋队招人啦 · 账户活跃+亲近民主】
+
+欢迎各志愿者参与拆墙文宣翻译事务，在各大社交平台Twitter、Facebook、Reddit、Pornhub等进行公关游说。特攻队重点挑选账户活跃、支持民主的墙外人士，否则就请在暗处配合，推特号多留言，具体请发邮件EndGFW@protonmail.com，谢谢！
+#EndGFW #拆牆運動 https://t.co/DnoYiYNdCs<br><img src='/temp/image/2023/w-Month-3/1637541346201456640_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1637541346201456640_1.jpg' width='450' height='500'><br><br>
