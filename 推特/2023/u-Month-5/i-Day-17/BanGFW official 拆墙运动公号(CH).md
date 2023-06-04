@@ -1,2 +1,3 @@
 北京时间2023-05-17T23:57:33Z<br>RT @geleilaoshi: 發了一首關於拆毀防火牆，突然噴子多了很多！謝謝讓我意識到我有說中你的痛點。「拆毀防火牆」讓獨裁很害怕。因為它與其他訴求不同的是，中國普通人也很討厭防火牆。<br><br><br>北京时间2023-05-17T22:33:28Z<br>https://t.co/EIYKikifwG<br><br><br>北京时间2023-05-17T21:34:10Z<br>RT @whyyoutouzhele: 目前，每天接到全国各地大量投稿，各地公安及学校都在紧急提醒家长注意排查孩子手机里存在“推特”“蝙蝠”“纸飞机”“事密达”“Whatsapp”等软件。
-这可能是一项全国性大范围的专项治理行动的一部分。 https://t.co/s0UtSo…<br><br><br>
+这可能是一项全国性大范围的专项治理行动的一部分。 https://t.co/s0UtSo…<br><br><br>北京时间2023-05-17T21:13:21Z<br>一起来谈谈我们的拆墙大业吧！一个半小时后就将激情登场！
+Let's talk about our achievements on Ban Great Firewall Movement https://t.co/EIYKikiNme<br><br><br>
