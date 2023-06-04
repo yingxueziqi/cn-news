@@ -11,4 +11,4 @@ TikTok在美国有上亿用户了，禁和不禁两派各有拥趸。但对中�
 
 中共大量出口军火和互联网 #防火墙 技术，缅甸已成战场，每天大批平民被残忍枪杀，虽遭欧美遗忘，但仍斗志昂扬，在集体抗争的组织性上高于我们。让我们在 #MilkTeaAlliance 旗帜下互粉，共击国际独裁者。支持 #昂山素季 为首民选政府重执政。
 #EndGFW ##WeSupportNUG<br><br><br>北京时间2023-03-26T03:09:04Z<br>RT @EndGFW2: We 1.4 billion Chinese also blame CCP,  are holding huge campaign  #EndGFW to tear down its Internet Berlin Wall (GFW)，which h…<br><br><br>北京时间2023-03-26T02:48:34Z<br>RT @EndGFW2: 缅甸人反军政府暴政这搞法是不是 #拆墙运动 者 也试试？戴口罩、竖三指、举标语，缅甸平民成天大批被枪杀，我们应互相支持
-Should we #EndGFW campaigners also follow the way of Myanmar peopl…<br><br><br>
+Should we #EndGFW campaigners also follow the way of Myanmar peopl…<br><br><br>北京时间2023-03-26T01:56:16Z<br>RT @Bill1st1: 美国就算丑陋，和你国的防火墙的不要脸比起来，那简直就是贞洁烈女和想立牌坊的臭婊子的区别<br><br><br>
