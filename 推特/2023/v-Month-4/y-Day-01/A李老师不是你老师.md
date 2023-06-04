@@ -1,0 +1,3 @@
+北京时间2023-04-01T16:13:00Z<br>网友投稿
+根据湘潭市基层政务公开网站提供的信息显示，
+茶恩寺镇双阳村马英九祖坟已经列入当地文博单位名录 https://t.co/96ImeAeDYn<br><img src='/temp/image/2023/v-Month-4/1642077589035515904_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1642077589035515904_1.jpg' width='450' height='500'><br><br>北京时间2023-04-01T12:54:21Z<br>我发自内心地认为，国家的财政不应该也不值得花在这种地方。 https://t.co/jYtr7O14Hs<br><img src='/temp/image/2023/v-Month-4/1642027596635332608_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1642027596635332608_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1642027596635332608_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1642027596635332608_3.jpg' width='450' height='500'><br><br>
