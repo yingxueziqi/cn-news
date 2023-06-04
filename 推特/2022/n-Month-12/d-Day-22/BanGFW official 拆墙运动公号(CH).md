@@ -3,4 +3,4 @@
 
 地元シンクタンクは「（当初の）予算を大幅に上回る中、完成を急ぐあまり安全性が損なわれている」と指摘。<br><br><br>北京时间2022-12-22T13:27:57Z<br>RT @ZhentingLiu: รถยนต์ญี่ปุ่นที่มีส่วนแบ่งตลาดในไทย 90%  กำลังเผชิญกับการแข่งขันอย่างดุเดือดกับรถยนต์ไฟฟ้า(EV)จากจีน ที่เปิดตัวหลายรุ่น
 
-(…<br><br><br>
+(…<br><br><br>北京时间2022-12-22T11:52:52Z<br>RT @RafaJBuendia: Indonesia ban of bauxite exports creates a problem for China. It currently imports some 20 million tons from Indonesia ht…<br><br><br>
