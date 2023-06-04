@@ -1,2 +1,2 @@
 北京时间2023-03-27T21:23:15Z<br>RT @ZhouFengSuo: 政策层面，可以威胁对等封锁墙内网页来要求中共开放GFW,但是选择网站对美国是是不愿意做的，更进一步就是全面封禁墙内IP,现在看来很遥远，未必不会发生。
-现在美国已经被迫考虑主动网络攻击，如果定点击垮GFW，那是最好，否则全面封禁墙内IP也是网络…<br><br><br>北京时间2023-03-27T20:13:57Z<br>RT @VNirvanaer: Because CNN is the only foreign media that the CCP GFW does not ban. It has become a peripheral organization of the CCP's p…<br><br><br>
+现在美国已经被迫考虑主动网络攻击，如果定点击垮GFW，那是最好，否则全面封禁墙内IP也是网络…<br><br><br>北京时间2023-03-27T20:13:57Z<br>RT @VNirvanaer: Because CNN is the only foreign media that the CCP GFW does not ban. It has become a peripheral organization of the CCP's p…<br><br><br>北京时间2023-03-27T19:00:50Z<br>RT @LiuFenggang: 鉴于胡石根长老刑满未回到家中，我和张前进牧师、王天成先生和贾一群等同工接受了光传媒采访，王天成是法律专业人士曾与胡长老一起坐过牢，他表示如果胡石根仍处于失踪状态，我们立即启动紧急营救方案，通知各西方政府和人权组织向中共施压。晚上接到了候文豹先生…<br><br><br>
