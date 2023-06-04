@@ -1,0 +1,2 @@
+北京时间2023-04-23T19:00:49Z<br>后续：福建体彩的工作人员称，开奖球被卡住可能是“天气原因”。 https://t.co/geiWm5DNGY<br><img src='/temp/image/2023/v-Month-4/1650092353993027585_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650092353993027585_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1650092353993027585_2.jpg' width='450' height='500'><br><br>北京时间2023-04-23T08:29:43Z<br>RT @selinawangtv: Experts say the crisis in Henan is just the tip of the iceberg, as China's economy slows &amp; debt balloons.
+Frank Xie of Un…<br><br><br>
