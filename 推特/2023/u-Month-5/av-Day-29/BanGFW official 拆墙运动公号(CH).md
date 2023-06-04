@@ -9,4 +9,4 @@
 
 中共掌权中国，社会经济问题巨多。垮台说法也并非首次，08年金融危机时就传得很广。但当时中共还办了奥运和世博。当前中共无1个好消息，钱也烧光了，对内对外讲话也没人听了，反抗者云涌。这和苏共倒台前很多症状相似。
 #拆墙 #BanGFW
-https://t.co/M8eAktgbkg https://t.co/P4ACFhlDmG<br><img src='/temp/image/2023/u-Month-5/1662983906210250753_0.jpg' width='450' height='500'><br><br>北京时间2023-05-29T00:52:00Z<br>RT @YOYO_MIAO: @zhihui999 拆墙的四大巨头乔鑫鑫、dongling、王清鹏、林生亮纯他妈的四个精神病院跑出来的玩意儿<br><br><br>
+https://t.co/M8eAktgbkg https://t.co/P4ACFhlDmG<br><img src='/temp/image/2023/u-Month-5/1662983906210250753_0.jpg' width='450' height='500'><br><br>
