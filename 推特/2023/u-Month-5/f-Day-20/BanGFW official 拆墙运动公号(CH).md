@@ -1,1 +1,1 @@
-北京时间2023-05-20T01:17:28Z<br>RT @HoloRsShard: @wenzhaocomment 拆掉防火墙中共自己就会倒台<br><br><br>
+北京时间2023-05-20T01:17:28Z<br>RT @HoloRsShard: @wenzhaocomment 拆掉防火墙中共自己就会倒台<br><br><br>北京时间2023-05-20T00:18:55Z<br>RT @BanGFW2: @xchen156 @wangqingpeng1 感谢小平记者！但 #拆墙运动 团队已经代表14亿人，向白宫和硅谷集体提出索赔70万亿美元。革命家不会接受政客们那套忽悠小民的搞法。美国政府自克林顿时期，就被几个军火商和硅谷公司霸屏至今，集体把亿万中国人…<br><br><br>
