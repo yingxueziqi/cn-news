@@ -8,4 +8,4 @@ Qiao Xinxin daily report on his safety
 
 1.防火墙运维成本高昂致小国无力承担；
 2.能被滥用去偷听所有官员；
-3.巨大声讨或被欧美1票否决致国…<br><br><br>
+3.巨大声讨或被欧美1票否决致国…<br><br><br>北京时间2023-04-21T02:30:19Z<br>RT @Ban_GFW: In terms of CCP's cross-border's  crackdown on pro-democracy activist Mr. Qiao Xinxin, We already inform embassies of 10 major…<br><br><br>
