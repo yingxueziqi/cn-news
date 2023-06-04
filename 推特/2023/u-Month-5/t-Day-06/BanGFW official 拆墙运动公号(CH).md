@@ -2,4 +2,6 @@
 
 #BanGFW #BanGreatFirewall #互联网防火墙 #ベルリンの壁 #インタネット #만리방화벽금지<br><br><br>北京时间2023-05-06T21:59:35Z<br>乔鑫鑫：英王查理三世加冕仪式之际，感谢英国驻万象的大使馆齐聚多国的名媛、高官、富商  #拆墙运动<br><br><br>北京时间2023-05-06T10:43:08Z<br>RT @Ban_GFW: Great thanks! #BanGFW is featured in the report of New Tang Dynasty TV（Chinese）.  
 感谢新唐人电视台对 #拆墙运动 的大力报道
- #BanGFW #BanGreatFir…<br><br><br>
+ #BanGFW #BanGreatFir…<br><br><br>北京时间2023-05-06T10:42:46Z<br>RT @spotlightoncn: The founder of ‘Ban Great Fire Wall’ threatened while out of the country
+ 
+Qiao Xinxin, the founder of the “Ban Great Fi…<br><br><br>
