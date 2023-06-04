@@ -7,4 +7,6 @@
 ⬇️详细⬇️
 https://t.co/LRTyOg9E5Y<br><br><br>北京时间2023-03-25T08:04:14Z<br>RT @EndGFW2: 【拆墙·翻墙·推墙---拆墙人用国际笔杆子和刀把子制裁土共】
 
-“推墙”就是“打倒X党”，口号大难实施。翻墙是用技术建立VPN来绕防火墙，是与建墙同年诞生的大生意，但易被封禁和抓捕。 #拆墙运动 是治根，在社交网站打国际舆论战，并在各国议会和海牙国际刑…<br><br><br>北京时间2023-03-25T07:59:31Z<br>RT @Ldl076ya: 拆除互联网防火墙--打破中共威胁的最高绝招 Most powerful way to combat CCP---tear down its In... https://t.co/hBTgmnp0JA 来自 @YouTube<br><br><br>
+“推墙”就是“打倒X党”，口号大难实施。翻墙是用技术建立VPN来绕防火墙，是与建墙同年诞生的大生意，但易被封禁和抓捕。 #拆墙运动 是治根，在社交网站打国际舆论战，并在各国议会和海牙国际刑…<br><br><br>北京时间2023-03-25T07:59:31Z<br>RT @Ldl076ya: 拆除互联网防火墙--打破中共威胁的最高绝招 Most powerful way to combat CCP---tear down its In... https://t.co/hBTgmnp0JA 来自 @YouTube<br><br><br>北京时间2023-03-25T07:57:10Z<br>「请快来Change网站签名救 #阮晓寰」
+
+今日编程随想的诞生是为了让我们的未来与后人不再需要下一个编程随想。成功不必在我，努力必不唐捐，只要受编程随想鼓舞的你我继续对抗中共极权，他就还没输... https://t.co/z84uMaSYiP via @Change<br><br><br>
