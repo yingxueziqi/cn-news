@@ -5,4 +5,6 @@
 4月18日，全球第三大笔记本电脑代工大厂纬创当日发布公告，宣布旗下位于中国江苏泰州厂因连年亏损，将于4月26日停工停产。 https://t.co/sHj93K7Nyd<br><img src='/temp/image/2023/v-Month-4/1649363620357189635_0.jpg' width='450' height='500'><br><br>北京时间2023-04-21T18:43:33Z<br>网友投稿
 近日，在国内单机游戏圈风波不断。此前曾有针对《生化危机4重制版》的恶意退款行为
 之后又有网友晒出自己举报中国最大的Xbox玩家社区 比价助手的举报信。 https://t.co/wENTirwSWu<br><img src='/temp/image/2023/v-Month-4/1649363234703527936_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649363234703527936_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649363234703527936_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649363234703527936_3.jpg' width='450' height='500'><br><br>北京时间2023-04-21T18:39:27Z<br>网友投稿
-浙大一学生因辱华言论被拒录公务员，官方回应称对方已主动放弃名额。 https://t.co/67XbZhe2tC<br><img src='/temp/image/2023/v-Month-4/1649362200841076738_0.jpg' width='450' height='500'><br><br>
+浙大一学生因辱华言论被拒录公务员，官方回应称对方已主动放弃名额。 https://t.co/67XbZhe2tC<br><img src='/temp/image/2023/v-Month-4/1649362200841076738_0.jpg' width='450' height='500'><br><br>北京时间2023-04-21T00:58:22Z<br>网友投稿
+近期，一则林芝市农业农村局采购执法装备的公告引发了网友热议。
+再采购列表中包含了“暗访取证设备，信号屏蔽器，防刺背心，电警棍，夜视仪”等。… https://t.co/Zpp3IsX5hi https://t.co/dtcCdinEW4<br><img src='/temp/image/2023/v-Month-4/1649095170992881667_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1649095170992881667_1.jpg' width='450' height='500'><br><br>
