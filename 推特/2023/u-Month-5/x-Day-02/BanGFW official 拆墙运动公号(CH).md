@@ -4,4 +4,4 @@
 https://t.co/Nn1bgunedY<br><br><br>北京时间2023-05-02T13:49:19Z<br>感謝中華民國的國家通訊社“中央社”對 #拆牆運動 大力報導   
 Great thanks! #BanGFW is featured in the report of Central News Agency, which's an government unit of ROC (Taiwan).    
 #BanGFW #BanGreatFirewall #互联网防火墙 #ベルリンの壁 #インタネット #拆墙运动
-https://t.co/qtHcNmvQHS<br><br><br>
+https://t.co/qtHcNmvQHS<br><br><br>北京时间2023-05-02T13:41:59Z<br>RT @LuckyJoe198x: @hrichina @ZhouFengSuo 因为给人提供vpn服务被判刑3年3个月，刚刚从监狱里出来的路过。<br><br><br>
