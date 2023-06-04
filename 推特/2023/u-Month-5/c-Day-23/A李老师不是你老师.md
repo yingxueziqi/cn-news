@@ -12,4 +12,5 @@
 近日，江苏第二师范大学被爆出一名大四学生身体不适想要请假去医院，被学校以“疫情防控不准请假”为由驳回，要求学生在校医院挂水三天，不好再去医院。
 结果学生是突发急性白血病，最终因拖延了时间导致不治身亡。 https://t.co/3DoNgfcg91<br><img src='/temp/image/2023/u-Month-5/1660939994364624898_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660939994364624898_1.jpg' width='450' height='500'><br><br>北京时间2023-05-23T17:05:18Z<br>网友补充 https://t.co/79pHdJYVNf<br><img src='/temp/image/2023/u-Month-5/1660934921647452160_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660934921647452160_1.jpg' width='450' height='500'><br><br>北京时间2023-05-23T17:04:49Z<br>网友投稿
 5月23日，武汉某小区。地铁集团强行进入小区施工，与居民产生冲突。
-据居民称，他们曾经报警，但是警察并未到场。 https://t.co/QzSBe2rUOl<br><img src='/temp/video/2023/u-Month-5/c-Day-23/whyyoutouzhele/1660934800939548672_0.jpg' width='450' height='500'><br><br>
+据居民称，他们曾经报警，但是警察并未到场。 https://t.co/QzSBe2rUOl<br><img src='/temp/video/2023/u-Month-5/c-Day-23/whyyoutouzhele/1660934800939548672_0.jpg' width='450' height='500'><br><br>北京时间2023-05-23T16:49:18Z<br>网友投稿
+5月23日上午，武汉。一群医护人员前往武汉市江汉区卫健委，要求“还我抗疫血汗钱”“还我编制”。 https://t.co/uNSW3A1xkW<br><img src='/temp/image/2023/u-Month-5/1660930895564374019_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1660930895564374019_1.jpg' width='450' height='500'><br><br>
