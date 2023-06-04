@@ -10,4 +10,4 @@
 
 https://t.co/1eVB1wrmnq
 
-在我们发出了《从阮晓寰到“编程随想”：一个普通公民和“极客”如何成了“国家的敌人”？》这篇报道后，收到很多读者的留言，希望支持和…<br><br><br>北京时间2023-04-09T02:01:40Z<br>有抖音网友表示，自己刚才被市局要求打电话删除视频。 https://t.co/KWlivjpYOy<br><img src='/temp/image/2023/v-Month-4/1644762448916881417_0.jpg' width='450' height='500'><br><br>
+在我们发出了《从阮晓寰到“编程随想”：一个普通公民和“极客”如何成了“国家的敌人”？》这篇报道后，收到很多读者的留言，希望支持和…<br><br><br>北京时间2023-04-09T02:01:40Z<br>有抖音网友表示，自己刚才被市局要求打电话删除视频。 https://t.co/KWlivjpYOy<br><img src='/temp/image/2023/v-Month-4/1644762448916881417_0.jpg' width='450' height='500'><br><br>北京时间2023-04-09T01:53:29Z<br>4月8日下午，国务院新闻办公室举行发布会，中国疾病预防控制中心回应新冠病毒最有可能的起源。 https://t.co/VNCEBS0TgK<br><img src='/temp/video/2023/v-Month-4/q-Day-09/whyyoutouzhele/1644760389811417091_0.jpg' width='450' height='500'><br><br>
