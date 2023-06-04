@@ -10,4 +10,8 @@ https://t.co/ME9ORMQnkc https://t.co/o5c9dFRxTD<br><img src='/temp/image/2023/w-
 
 以下是Quora上网络专家们的看法，说直白点，CCP掌握枪杆子，这堵墙在技术是世界最精密的互联网审查系统，这是集国家力量对抗个体。我以前做过不少散兵游勇式的对抗，自建新闻网站等等，但对拆墙的作用其实极小。愚民墙是政治问题！
 
-https://t.co/09dhKv0iBc<br><br><br>
+https://t.co/09dhKv0iBc<br><br><br>北京时间2023-03-10T00:06:42Z<br>幫14億中國人拆除互聯網愚民牆的全球簽名倡議書，歡迎來簽名！
+Welcome to sign the petition to help 1.4 billion Chinese tear down Internet Berlin Wall of CCP
+
+#EndGFW  #柏林墙 #互联网防火墙
+https://t.co/BPYyGNq8G7<br><br><br>
