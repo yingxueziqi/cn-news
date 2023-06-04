@@ -4,4 +4,6 @@ https://t.co/fx68zSQzBt
 15年了，对汶川地震中豆腐渣工程的追问从未间断。无论遇上怎样的阻拦和困难，总有人在前仆后继地追问一个说法。15年前的汶川地震给中国留下了深刻的伤痛，但灾难…<br><br><br>北京时间2023-05-12T20:43:05Z<br>网友投稿
 “认真的雪”
 近日，河北邢台网信办公众号发布了一则消息称，沙河市网信、公安部门联合约谈一名发布不实信息网民。
-据悉，5月6日上午，牛某在自己的抖音账号“Mr、牜”上发布视频“你们那下雪了吗？”，视频显示某地正在下雪，并附文字“河北省沙河市”。… https://t.co/mmXdzyjB6D https://t.co/XwdPoHZtmG<br><img src='/temp/image/2023/u-Month-5/1657003459789443074_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657003459789443074_1.jpg' width='450' height='500'><br><br>
+据悉，5月6日上午，牛某在自己的抖音账号“Mr、牜”上发布视频“你们那下雪了吗？”，视频显示某地正在下雪，并附文字“河北省沙河市”。… https://t.co/mmXdzyjB6D https://t.co/XwdPoHZtmG<br><img src='/temp/image/2023/u-Month-5/1657003459789443074_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657003459789443074_1.jpg' width='450' height='500'><br><br>北京时间2023-05-12T20:37:17Z<br>后续补充
+有学校同学向老师求证，得到的回复是原文中图三内容不实，抗议者目前只是被约谈，没有被记过。
+聊天记录可能系贴吧网友伪造。 https://t.co/9o3y7kurOA<br><img src='/temp/image/2023/u-Month-5/1657002002205884416_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657002002205884416_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657002002205884416_2.jpg' width='450' height='500'><br><br>
