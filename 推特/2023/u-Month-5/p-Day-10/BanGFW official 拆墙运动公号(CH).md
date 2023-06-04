@@ -1,1 +1,2 @@
-北京时间2023-05-10T21:40:23Z<br>RT @Ban_GFW: Mr. Qiao Xinxin's handwriting at beach of Mekong River between Laos's Vientiane &amp; Thailand's Nongkai, he wishes Mekong Goddess…<br><br><br>北京时间2023-05-10T21:07:50Z<br>支持 #拆墙运动 先锋 #阮晓寰 ，请大家都来呼吁国际社会施压中共放人。<br><br><br>
+北京时间2023-05-10T21:40:23Z<br>RT @Ban_GFW: Mr. Qiao Xinxin's handwriting at beach of Mekong River between Laos's Vientiane &amp; Thailand's Nongkai, he wishes Mekong Goddess…<br><br><br>北京时间2023-05-10T21:07:50Z<br>支持 #拆墙运动 先锋 #阮晓寰 ，请大家都来呼吁国际社会施压中共放人。<br><br><br>北京时间2023-05-10T11:43:30Z<br>非常感谢美国的Spotlight新闻频道，再次重点视频报道并激起英文圈的热议，从而有效吓阻中共对拆墙人的人身安全威胁。
+ #拆墙运动 #BanGFW #GreatFirewall #만리방화벽금지 　#ベルリンの壁　#インタネット #中国共産党<br><br><br>
