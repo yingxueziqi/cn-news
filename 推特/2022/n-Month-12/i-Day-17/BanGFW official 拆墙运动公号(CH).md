@@ -1,0 +1,1 @@
+北京时间2022-12-17T17:19:00Z<br>RT @vijaita: Randeep Surjewala (Cong) intervened saying Chair had the time to discuss Chinese apps but not allow a debate on Chinese incurs…<br><br><br>北京时间2022-12-17T15:58:19Z<br>RT @omongomongcom: Banyak pasal ambigu yg membelenggu pikiran, membunuh demokrasi, dan membungkam intelektualitas dalam KUHP. Perdebatan pa…<br><br><br>
