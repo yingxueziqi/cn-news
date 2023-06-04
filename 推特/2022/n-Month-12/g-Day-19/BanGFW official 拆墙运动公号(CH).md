@@ -9,4 +9,6 @@ Can you confirm the information related to Ms.Guo Rui?
 你能证实泰国头条新闻女老板郭蕊的情况吗？
 
 https://t.co/HWSDXjfGy1
-#ทุนสีเทาจีน<br><br><br>
+#ทุนสีเทาจีน<br><br><br>北京时间2022-12-19T00:55:00Z<br>ตามหาผู้รู้ คดีหมิ่นประมาท บริษัท ไทยเจียระไน กรุ๊ป
+寻找泰国亚洲传媒集团关联的诽谤案之知情者
+Looking for who knows  2 cases of defamation related to Thai Jiaranai Group in 2020. https://t.co/OJrXLsWHRt<br><img src='/temp/image/2022/n-Month-12/1604520616308379650_0.jpg' width='450' height='500'><br><br>
