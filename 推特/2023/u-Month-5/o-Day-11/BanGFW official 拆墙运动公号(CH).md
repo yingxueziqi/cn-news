@@ -3,4 +3,4 @@
 孟女士 @anticommunism20 撰写长文纪念“六四”事件时指，中共互联网防火墙隔绝了真相，呼吁海外华人在自由的信息环境下，放弃精致的利己主义，揭发中共暴政。唯有如此，等你有困难时，才可能有别人热心帮助。#BanGFW 
 https://t.co/F29Fb5MRkP https://t.co/ulIZbmGCbA<br><img src='/temp/image/2023/u-Month-5/1656672554722144257_0.jpg' width='450' height='500'><br><br>北京时间2023-05-11T18:38:08Z<br>RT @Ban_GFW: Advocates of Global Ban Great Firewall Movement 
 80亿人拆墙运动在各国的铁粉代表 (2nd Version第2版 )
-@Jwang312 @Lydia981402 @zhan42577 @hualing…<br><br><br>
+@Jwang312 @Lydia981402 @zhan42577 @hualing…<br><br><br>北京时间2023-05-11T17:08:20Z<br>RT @hualing04177805: 我多希望我的哥哥能够看到外面世界，我想说给他外面的世界很好，可是即使我说给他听，他依旧不肯相信，甚至说你别说给我听。哥我是你弟弟，我还能害你吗？只要防火墙一日存在，14亿中国人就得被迫接受共匪洗脑教育。天天吹嘘只有读书才能出人头地，去你…<br><br><br>
