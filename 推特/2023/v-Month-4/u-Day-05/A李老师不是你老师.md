@@ -9,4 +9,7 @@
 刚刚，北京工人体育馆附近发生了一起杀人案。
 一群青年疑似因醉酒后产生矛盾扭打在一起。争执中，一白衣男子手持碎酒瓶捅破了一蓝衣男子的喉咙（14秒处），造成蓝衣男子死亡。 https://t.co/HCZL6mO1gY<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643414766512160769_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T08:02:50Z<br>网友投稿
 北京北京中关村信息路上地五街路口附近
-疑似一名程序员在给ChatGPT烧纸。 https://t.co/Lux8ySwrzV<br><img src='/temp/image/2023/v-Month-4/1643403787699101698_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643403787699101698_1.jpg' width='450' height='500'><br><br>
+疑似一名程序员在给ChatGPT烧纸。 https://t.co/Lux8ySwrzV<br><img src='/temp/image/2023/v-Month-4/1643403787699101698_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643403787699101698_1.jpg' width='450' height='500'><br><br>北京时间2023-04-05T05:50:41Z<br>网友投稿
+微博上一名博主经过测试发现，原本被微博屏蔽的词汇，只要在前面加上“美国”就可以显示出来。
+随后网友们纷纷开始测试
+（注意图中划横线的部分仅有博主自己可见，在读者视角是看不见的，但是在前面加了美国就可以显示出来被所有人可见） https://t.co/yzCQC7F19d<br><img src='/temp/image/2023/v-Month-4/1643370529363984385_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_2.jpg' width='450' height='500'><br><br>
