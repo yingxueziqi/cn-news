@@ -1,4 +1,5 @@
 北京时间2023-05-02T22:01:10Z<br>网友投稿
 5月1日，顺丰速运福州中转场发生53岁员工猝死事件。
 这是两个半月来的第二起高龄快递员工猝死事件。此前2月中旬，中通快递一名60岁的分拣员在凌晨猝死。 https://t.co/YLWEpaz5R1<br><img src='/temp/image/2023/u-Month-5/1653399234400468993_0.jpg' width='450' height='500'><br><br>北京时间2023-05-02T21:57:21Z<br>网友投稿
-近日，哈尔滨一租户在装修健身房时，把承重墙砸了，墙体开裂到21楼，整栋楼存在严重安全隐患，致使240户业主紧急撤离，整体损失可能高达1.6亿。 https://t.co/j8G95TWXri<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653398274248695815_0.jpg' width='450' height='500'><br><br>
+近日，哈尔滨一租户在装修健身房时，把承重墙砸了，墙体开裂到21楼，整栋楼存在严重安全隐患，致使240户业主紧急撤离，整体损失可能高达1.6亿。 https://t.co/j8G95TWXri<br><img src='/temp/video/2023/u-Month-5/x-Day-02/whyyoutouzhele/1653398274248695815_0.jpg' width='450' height='500'><br><br>北京时间2023-05-02T21:48:19Z<br>网友投稿
+手机游戏《崩坏 星穹铁道》将“李老师”认定为了敏感词。 https://t.co/3b56jF4CX9<br><img src='/temp/image/2023/u-Month-5/1653396001145729024_0.jpg' width='450' height='500'><br><br>
