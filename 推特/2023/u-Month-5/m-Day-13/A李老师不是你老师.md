@@ -6,4 +6,5 @@
 5月12日，一则介绍15年前香港民众为汶川地震捐款情况的博文被列为了“不实信息”，博主被禁言七天。
 有网友感叹，“08年血浓于水，23年不实信息”。
 另有网友笑言，这条微博被列为不实的原因可能是因为邵逸夫总共捐了两亿，而博文里只说了一亿。… https://t.co/oUvJnYu9iP https://t.co/Nn3IIkj3nd<br><img src='/temp/image/2023/u-Month-5/1657340588952367104_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657340588952367104_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657340588952367104_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1657340588952367104_3.jpg' width='450' height='500'><br><br>北京时间2023-05-13T16:55:29Z<br>5月13日，意大利大使馆针对近日网传停办签证的消息进行回应，称消息毫无根据，团队旅游签证即将恢复。 https://t.co/BlMsCGCvlP<br><img src='/temp/image/2023/u-Month-5/1657308572550610948_0.jpg' width='450' height='500'><br><br>北京时间2023-05-13T16:50:09Z<br>RT @SydneyDaddy1: A student from University of Melbourne @UniMelb said ”kill you non-Chinese c**ts” in a social media video. In another vid…<br><br><br>北京时间2023-05-13T16:03:56Z<br>因为该事件手段残忍过于血腥，暂时不提供任何补充，请各位自行搜索，见谅
-如有想在评论区自行补充的推友请将图片设置敏感后再发布，谢谢大家<br><br><br>
+如有想在评论区自行补充的推友请将图片设置敏感后再发布，谢谢大家<br><br><br>北京时间2023-05-13T16:01:13Z<br>网友投稿
+5月12日，江苏徐州，一名年轻人在楼顶大量抛洒传单，谴责近日在中外互联网上引起轰动的安徽阜南“杰克辣条”虐猫事件 https://t.co/sU3qGNDpDO<br><img src='/temp/video/2023/u-Month-5/m-Day-13/whyyoutouzhele/1657294914491744256_0.jpg' width='450' height='500'><br><br>
