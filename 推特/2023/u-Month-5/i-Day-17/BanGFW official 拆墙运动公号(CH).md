@@ -3,4 +3,7 @@
 Let's talk about our achievements on Ban Great Firewall Movement https://t.co/EIYKikiNme<br><br><br>北京时间2023-05-17T18:01:36Z<br>RT @Ban_GFW: 2259专案组招聘1名组长，你不必露面，负责牵头调查中共防火墙技术关联的200多个人和实体信息，并展开国际追责行动。
 We need a head for 2259 Project, u don't have to make public appear…<br><br><br>北京时间2023-05-17T16:29:27Z<br>防火墙危害80亿人利益，全世界的媒体人都公开讨伐并要来 #拆墙 ，有人却还要为“圣上”的互联网防火墙辩解半天，这也算过线？ #BanGFW
 
-视频原处：https://t.co/yqJ2mIgMJ1<br><br><br>
+视频原处：https://t.co/yqJ2mIgMJ1<br><br><br>北京时间2023-05-17T14:12:13Z<br>擒贼先擒王 · 请程序员等各界朋友联手 · 举报互联网防火墙关联的主要官员和公司负责人 · 追查其家庭信息特别是海外资产 · 我们会将相关资料报送欧美政府· 精准威慑以墙为生的数百万网警、网评员、技术员
+
+#恶人榜   #一人一推 #拆墙运动 #BanGFW #GreatFirewall
+https://t.co/01XD5m40OX https://t.co/GzP2JqH5bb<br><img src='/temp/image/2023/u-Month-5/1658717036535754752_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658717036535754752_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1658717036535754752_2.jpg' width='450' height='500'><br><br>
