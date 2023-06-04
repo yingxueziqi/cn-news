@@ -10,4 +10,6 @@ https://t.co/fx68zSQzBt
 12日，霍华德在参加活动时回应并道歉，称当他说到“country”一词时，指的不一定是“国家”，并称自己尊重所有中国人与台湾人。 https://t.co/IQHbz9tR5K<br><img src='/temp/image/2023/u-Month-5/1656993861015683075_0.jpg' width='450' height='500'><br><br>北京时间2023-05-12T11:57:52Z<br>网友投稿
 5月11日，四川大学
 因抗议近日四川大学宣布将部分男厕所改为女厕所，一名男生在校园内头戴丁真面具向同学免费发放男性纸尿裤，随后被赶来的保安带走。 https://t.co/9NZx0zT2M6<br><img src='/temp/image/2023/u-Month-5/1656871284670623746_0.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656871284670623746_1.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656871284670623746_2.jpg' width='450' height='500'><img src='/temp/image/2023/u-Month-5/1656871284670623746_3.jpg' width='450' height='500'><br><br>北京时间2023-05-12T11:29:38Z<br>网友投稿
-中国驻中非大使馆5月6日发布领事安全提醒称，近日中非共和国外省地区发生多起针对中国企业和公民的武装袭击，绑架，恐吓等安全事件，造成人员伤亡和财产损失。 https://t.co/td5NKJ6d4E<br><img src='/temp/image/2023/u-Month-5/1656864180996120577_0.jpg' width='450' height='500'><br><br>
+中国驻中非大使馆5月6日发布领事安全提醒称，近日中非共和国外省地区发生多起针对中国企业和公民的武装袭击，绑架，恐吓等安全事件，造成人员伤亡和财产损失。 https://t.co/td5NKJ6d4E<br><img src='/temp/image/2023/u-Month-5/1656864180996120577_0.jpg' width='450' height='500'><br><br>北京时间2023-05-12T07:07:19Z<br>网友投稿
+5月11日，深受中国球迷喜爱的前NBA著名球星“魔兽”霍华德与中华民国副总统，台湾民进党主席赖清德合拍了一部宣传片。片中，霍华德称台湾是一个“国家”，并邀请大家“来总统府住一晚”。
+视频一出立即引发大陆网友的强烈不满，大量网友前往霍华德的微博评论区抗议。 https://t.co/siUCi2MT1I https://t.co/cKFQN9UsRQ<br><img src='/temp/video/2023/u-Month-5/n-Day-12/whyyoutouzhele/1656798168405647360_0.jpg' width='450' height='500'><br><br>
