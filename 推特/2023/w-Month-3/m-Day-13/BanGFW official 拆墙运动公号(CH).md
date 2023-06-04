@@ -8,4 +8,7 @@
 你用“GFW Internet censorship China”谷歌翻成100多语种，再一搜，就能轻易找到各国主流媒体和自媒体下排山倒海般的评论，精简概括就是这堵墙将14亿人与66亿人大隔离、互相误解和冲突，这绝非中国内政，国际上公开化，分分钟就可定罪。
 #EndGFW #拆墙运动 https://t.co/4W8oZCa6tW<br><img src='/temp/image/2023/w-Month-3/1635165488551710720_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635165488551710720_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635165488551710720_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635165488551710720_3.jpg' width='450' height='500'><br><br>北京时间2023-03-13T12:10:42Z<br>让我们把个人签名改为“拆墙是符合80亿人利益的头等大事”
 #EndGFW #拆墙运动
-中国互联网防火墙，隔绝14亿人和66亿人信息，引起海量误解和冲突，属于反人类滔天大罪。但大家对拆墙还没达成高度共识，只是反复刷习家称帝而干着急。说服更多人翻身当拆墙人，就是你我可全面打击中共的绝招。小事先行！ https://t.co/XFheuAOKrd<br><img src='/temp/image/2023/w-Month-3/1635131245280755712_0.jpg' width='450' height='500'><br><br>
+中国互联网防火墙，隔绝14亿人和66亿人信息，引起海量误解和冲突，属于反人类滔天大罪。但大家对拆墙还没达成高度共识，只是反复刷习家称帝而干着急。说服更多人翻身当拆墙人，就是你我可全面打击中共的绝招。小事先行！ https://t.co/XFheuAOKrd<br><img src='/temp/image/2023/w-Month-3/1635131245280755712_0.jpg' width='450' height='500'><br><br>北京时间2023-03-13T11:47:40Z<br>为何网上共同签名很重要？
+
+解决社会问题，联名特别是网上联名已风行欧美，在亚洲却还较弱，但包括Change在内的网签平台，提供了快速获得亿万人支持的渠道，难度最低！最近甄子丹丑事又提高了中文圈网签搞事的知名度，包括而不限于上街游行、使馆举牌、散发传单等线下方式。
+#EndGFW #拆墙运动 https://t.co/Tu6CmhRHFt<br><img src='/temp/image/2023/w-Month-3/1635125447204941824_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635125447204941824_1.jpg' width='450' height='500'><br><br>
