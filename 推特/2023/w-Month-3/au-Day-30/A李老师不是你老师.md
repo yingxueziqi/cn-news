@@ -10,4 +10,7 @@ https://t.co/pzfj4bjTLf<br><br><br>北京时间2023-03-30T15:22:35Z<br>网友投
 反诈APP也出现内卷？有重庆网友投稿称，自己的班级下发注册“黔江反诈卫士APP”的要求，并在辖区单位中要求选择特定派出所，疑似是国家反诈APP的衍生品，但是目前在网上搜不到更多关于该产品的相关信息。 https://t.co/5q8BFwdYMr<br><img src='/temp/image/2023/w-Month-3/1641326932158545924_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T14:21:35Z<br>网友投稿
 齐鲁师范学院外国语学院强制学生在运动会期间购买服装，但是在交完钱两天后又宣称购买服装遵从自愿原则。 https://t.co/1YzcjBcJtY<br><img src='/temp/image/2023/w-Month-3/1641324775032119298_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641324775032119298_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641324775032119298_2.jpg' width='450' height='500'><br><br>北京时间2023-03-30T09:09:00Z<br>可能大家也发现了，上面这个微信截图里，全篇充斥着大量“游行”“抗议”“示威”和时间地点的信息，居然是可以在微信群里随意自由传播而不被系统自动屏蔽的。<br><br><br>北京时间2023-03-30T06:30:26Z<br>https://t.co/qdJw5io0KY<br><img src='/temp/image/2023/w-Month-3/1641206206902702080_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T06:29:11Z<br>3月29日，纽约
 在蔡英文下榻的酒店外，有超过 200 名抗议者进行抗议示威
-https://t.co/1tyZrlRs5D<br><img src='/temp/video/2023/w-Month-3/au-Day-30/whyyoutouzhele/1641205890576424961_0.jpg' width='450' height='500'><br><br>
+https://t.co/1tyZrlRs5D<br><img src='/temp/video/2023/w-Month-3/au-Day-30/whyyoutouzhele/1641205890576424961_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T03:15:08Z<br>网友投稿
+进一步脱钩？
+从四月一号开始，很多外国大学将会不能再访问CNKI中国知网的部分数据库了。
+包含中国博士学位论文全文数据库，中国优秀硕士学位论文全文数据库，中国重要会议论文全文数据库，中国法律知识资源总库以及中国统计年鉴数据库。 https://t.co/c5PjZlkk3K<br><img src='/temp/image/2023/w-Month-3/1641157058731954177_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641157058731954177_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641157058731954177_2.jpg' width='450' height='500'><br><br>
