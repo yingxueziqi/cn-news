@@ -16,4 +16,6 @@ https://t.co/IJP2gZD8ou<br><br><br>北京时间2023-03-28T18:54:17Z<br>网友投
 枪手为一名28岁女性，开枪打死3名小学生，3名教师 — 枪手在与警方交火中被打死
 报道说，她拿着至少两支半自动步枪和一支手枪
 
-#控枪<br><br><br>
+#控枪<br><br><br>北京时间2023-03-28T00:24:10Z<br>网友投稿
+3月27日，有微博网友发帖称，北京语言大学有人偷拍女生上瑜伽课的照片，并发到微信群中意淫
+随后被曝出，此人是北京语言大学教学软件开发部老师闫伟雄。 https://t.co/9L0DHSytJO<br><img src='/temp/image/2023/w-Month-3/1640389255850516480_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640389255850516480_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640389255850516480_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640389255850516480_3.jpg' width='450' height='500'><br><br>
