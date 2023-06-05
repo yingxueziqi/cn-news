@@ -1,3 +1,6 @@
 北京时间2023-03-30T23:16:31Z<br>3月30日，海南全面启动全岛封关运作准备。
 之后，海南全岛将成为一共“境内关外”区域，专家称，海南将被打造成一个“香港+佛罗里达”式的自由贸易港。 https://t.co/NBocOtslK9<br><img src='/temp/image/2023/w-Month-3/1641459394071130112_0.jpg' width='450' height='500'><br><br>北京时间2023-03-30T23:14:00Z<br>多个网友投稿称，收到人民日报3月30日报纸的紧急停投通知，已停投报纸要就地封存销毁，目前原因不明。 https://t.co/FO3aVHtLiq<br><img src='/temp/image/2023/w-Month-3/1641458761209454594_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641458761209454594_1.jpg' width='450' height='500'><br><br>北京时间2023-03-30T15:23:15Z<br>事件回顾
-https://t.co/pzfj4bjTLf<br><br><br>
+https://t.co/pzfj4bjTLf<br><br><br>北京时间2023-03-30T15:22:35Z<br>网友投稿
+3月29日，北京金盾出版社发表声明，称出版社与李学政之间不存在任何行政隶属关系，也不存在任何劳动关系。原“金盾影视中心”已经撤销。
+3月30日，中国广播电视社会组织联合会发表声明，免去李学政委员会副会长职务。
+随后疑似李学政本人在朋友圈回应称自己遭遇迫害 https://t.co/17N46b3eQ4<br><img src='/temp/image/2023/w-Month-3/1641340127648571392_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641340127648571392_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641340127648571392_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641340127648571392_3.jpg' width='450' height='500'><br><br>
