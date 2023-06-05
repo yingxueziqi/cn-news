@@ -8,4 +8,6 @@ https://t.co/IJP2gZD8ou<br><br><br>北京时间2023-03-28T18:54:17Z<br>网友投
 3月24日，海南省人民政府办公厅印发关于支持民营经济发展的若干措施的通知
 文中称，营造公平公正法制环境，对民营企业家涉案人员能不捕就不捕，能不诉就不诉，能不判实刑就不判实刑，能不继续羁押的及时予以释放或变更强制措施。 https://t.co/4Ux2hMg4nw<br><img src='/temp/image/2023/w-Month-3/1640641760819855361_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640641760819855361_1.jpg' width='450' height='500'><br><br>北京时间2023-03-28T16:14:41Z<br>网友投稿
 3月28日，武汉光谷，因附近曙光村即将修建一个村级小学，将收纳附近的保利，金地，中建大公馆等小区的学龄儿童，因对教学质量的担忧引发这些小区业主的不满，多次和政府沟通无效。
-今天，小区业主们到光谷高新政府中心维权，与有关部门发生了冲突。 https://t.co/EkJDt3JuPC https://t.co/eqGv38XqTj<br><img src='/temp/image/2023/w-Month-3/1640628460514168832_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T15:48:26Z<br>https://t.co/TyulkYt3me<br><img src='/temp/image/2023/w-Month-3/1640621857954050051_0.jpg' width='450' height='500'><br><br>
+今天，小区业主们到光谷高新政府中心维权，与有关部门发生了冲突。 https://t.co/EkJDt3JuPC https://t.co/eqGv38XqTj<br><img src='/temp/image/2023/w-Month-3/1640628460514168832_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T15:48:26Z<br>https://t.co/TyulkYt3me<br><img src='/temp/image/2023/w-Month-3/1640621857954050051_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T15:46:56Z<br>网友投稿
+近日，有人在抖音上曝光广东省佛山市上朗村村民委员会选举存在徇私舞弊情况
+视频称，村民自荐参选被有关部门关押扣留，被迫签声明退选。 https://t.co/klaroa9R5o<br><img src='/temp/video/2023/w-Month-3/aw-Day-28/whyyoutouzhele/1640621480869347328_0.jpg' width='450' height='500'><br><br>
