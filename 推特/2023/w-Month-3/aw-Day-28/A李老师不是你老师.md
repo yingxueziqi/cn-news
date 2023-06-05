@@ -1,3 +1,4 @@
 北京时间2023-03-28T19:39:53Z<br>网友投稿
 3月28日上午，国务院新闻办公室举行新闻发布会，国家互联网信息办公室违法和不良信息举报中心主任申月指出，将严厉打击网上恶意损害企业和企业家形象声誉，甚至从中牟取非法利益的违法违规行为。… https://t.co/OrvQwI4XsY https://t.co/NGqex3fe64<br><img src='/temp/video/2023/w-Month-3/aw-Day-28/whyyoutouzhele/1640680103611887619_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T18:54:32Z<br>GitHub《拼多多后门详细报告》
-https://t.co/IJP2gZD8ou<br><br><br>
+https://t.co/IJP2gZD8ou<br><br><br>北京时间2023-03-28T18:54:17Z<br>网友投稿
+3月21日，谷歌公司称，由于发现拼多多的多个版本中存在恶意软件问题，已经将这款APP从谷歌商店下架。… https://t.co/H5OlU1raK7 https://t.co/g06ajkO1qr<br><img src='/temp/image/2023/w-Month-3/1640668627991928832_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640668627991928832_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640668627991928832_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1640668627991928832_3.jpg' width='450' height='500'><br><br>
