@@ -12,4 +12,8 @@ https://t.co/IJP2gZD8ou<br><br><br>北京时间2023-03-28T18:54:17Z<br>网友投
 近日，有人在抖音上曝光广东省佛山市上朗村村民委员会选举存在徇私舞弊情况
 视频称，村民自荐参选被有关部门关押扣留，被迫签声明退选。 https://t.co/klaroa9R5o<br><img src='/temp/video/2023/w-Month-3/aw-Day-28/whyyoutouzhele/1640621480869347328_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T15:42:09Z<br>网友投稿
 3月28日，久违的爱国画师乌合麒麟发表最新画作，呼吁“希望熊猫丫丫早日回家，不要在那鬼地方遭罪了” https://t.co/IUJPGWP2HQ<br><img src='/temp/image/2023/w-Month-3/1640620274755284992_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T03:58:55Z<br>网友投稿
-开学第一课： https://t.co/ttsCgrRyVy<br><img src='/temp/image/2023/w-Month-3/1640443298786734081_0.jpg' width='450' height='500'><br><br>
+开学第一课： https://t.co/ttsCgrRyVy<br><img src='/temp/image/2023/w-Month-3/1640443298786734081_0.jpg' width='450' height='500'><br><br>北京时间2023-03-28T03:57:25Z<br>RT @yanni_vision: 突发：田纳西那什维尔一天主教私立小学校发生大规模枪击案
+枪手为一名28岁女性，开枪打死3名小学生，3名教师 — 枪手在与警方交火中被打死
+报道说，她拿着至少两支半自动步枪和一支手枪
+
+#控枪<br><br><br>
