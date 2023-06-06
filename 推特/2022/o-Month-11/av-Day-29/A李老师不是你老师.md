@@ -1,2 +1,2 @@
-北京时间2022-11-29T22:30:22Z<br>深圳 华强北 21:40，一男子高喊“我要回家” 
-随后被警方带走 https://t.co/C7kiAbywcf<br><img src='/temp/video/2022/o-Month-11/av-Day-29/whyyoutouzhele/1597598850201833472_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-29T23:54:07Z<br>广州高校开始部署学生离校工作
+提出应返尽返，没有非留下不可得理由，原则上都离校。 https://t.co/4umMwleKuA<br><img src='/temp/image/2022/o-Month-11/1597619926466203653_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597619926466203653_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597619926466203653_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597619926466203653_3.jpg' width='450' height='500'><br><br>
