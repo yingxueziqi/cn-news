@@ -1,1 +1,1 @@
-北京时间2022-11-19T09:27:15Z<br>广州华南师范大学，用吊机给学生宿舍楼送物资。 https://t.co/Ra7kK5xgDu<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593777892424564736_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T20:05:35Z<br>爱国小留遭遇致命打击！ https://t.co/4Qg22J0Fr9<br><img src='/temp/image/2022/o-Month-11/1593938535270256640_0.jpg' width='450' height='500'><br><br>
