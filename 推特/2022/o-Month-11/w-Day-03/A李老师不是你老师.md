@@ -1,1 +1,4 @@
-北京时间2022-11-03T06:59:15Z<br>网友投稿 https://t.co/SMJWUlA4gR<br><img src='/temp/image/2022/o-Month-11/1587942440652050432_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-03T00:00:38Z<br>网友投稿
+10月26日10点左右，宁夏新商务技工学校一16岁女生因身体不适，父亲向班主任申请离校就医，但是未获得班主任许可，班主任表示学校有规定不让家属带孩子去看病，学校有校医。
+11点半，父亲赶到学校，并把药放在学校门口等待孩子。孩子给父亲发语音称自己害怕。
+然而半个小时后，孩子坠楼身亡 https://t.co/eq597TPvvG<br><img src='/temp/image/2022/o-Month-11/1587837094902333440_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587837094902333440_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587837094902333440_2.jpg' width='450' height='500'><br><br>
