@@ -1,1 +1,2 @@
-北京时间2022-12-13T18:14:01Z<br>网友投稿 山西太原某医院发布的关于进一步规范新冠肺炎相关死亡病例诊断等工作的通知 https://t.co/6g8KaoAdT6<br><img src='/temp/image/2022/n-Month-12/1602607767189131265_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T16:23:04Z<br>后续补充
+网友投稿称，南京医科大和江苏省人民医院拒绝让步，今日继续上班。 https://t.co/E8TPZDpjYs<br><img src='/temp/image/2022/n-Month-12/1602579844449144833_0.jpg' width='450' height='500'><br><br>
