@@ -1,2 +1,1 @@
-北京时间2022-12-13T00:41:59Z<br>今晚 四川南充市 川北医学院
-在四川高校基本全部遣返的情况下学生还在继续考期末，因此今晚学生们自发游行，本科生要求返乡，专硕要求同工同酬 https://t.co/FX8SK4cbDg<br><img src='/temp/video/2022/n-Month-12/m-Day-13/whyyoutouzhele/1602343013946114053_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T00:21:55Z<br>警情发布 https://t.co/yQV2jnxVNL<br><img src='/temp/image/2022/n-Month-12/1602337965686099968_0.jpg' width='450' height='500'><br><br>北京时间2022-12-13T00:11:45Z<br>福建省教育厅发布公告，要求各大高校本周五前让有返乡意愿的学生离校返乡。 https://t.co/WAgGU37L8a<br><img src='/temp/image/2022/n-Month-12/1602335407567511552_0.jpg' width='450' height='500'><br><br>北京时间2022-12-13T00:44:07Z<br>事件后续： https://t.co/WsGBRc32p2<br><img src='/temp/image/2022/n-Month-12/1602343551802740737_0.jpg' width='450' height='500'><br><br>
