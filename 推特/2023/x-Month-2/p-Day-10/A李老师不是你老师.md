@@ -1,1 +1,3 @@
-北京时间2023-02-10T07:49:02Z<br>@Kojima_Hideo 这下小岛秀夫辱华预定了<br><br><br>
+北京时间2023-02-10T19:36:52Z<br>网友投稿
+因为在B站一个做包子的视频下方留言“我不喜欢包子”，被涉嫌违规删除 https://t.co/i8jhUjwhyQ<br><img src='/temp/image/2023/x-Month-2/1624009501140459521_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624009501140459521_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624009501140459521_2.jpg' width='450' height='500'><br><br>北京时间2023-02-10T20:57:55Z<br>网友投稿
+共青团中央企图用假冒的叙利亚总统账号被封禁一事来嘲讽言论自由，结果被网友识破 https://t.co/NgSIcFh0fi<br><img src='/temp/image/2023/x-Month-2/1624029898879664128_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624029898879664128_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624029898879664128_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624029898879664128_3.jpg' width='450' height='500'><br><br>
