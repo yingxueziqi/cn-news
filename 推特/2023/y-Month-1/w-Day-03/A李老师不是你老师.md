@@ -1,5 +1,2 @@
-北京时间2023-01-03T07:31:00Z<br>网友补充警车被掀翻前的另一视角
-视频中显示，民众围住警车要求放人，有警察打开车门试图证明车里没人，但是此时现场民众的情绪已经无法控制，有人高喊“叫警车点咯”。
-随后有人向警察扔饮料，众人开始拍打警车，警察想驾车离开，但是被民众阻拦，有人开始攀爬上警车，周围高喊“放人”。 https://t.co/NGyhHtZqmt<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1610056091529891844_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T01:26:30Z<br>在现场，有青年站在警车上表演摇花手 https://t.co/9Lv1LKl8CH<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609964363913302025_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T04:56:44Z<br>网友补充投稿
-巴黎世家男孩在警车上跳舞 https://t.co/BvcmivrzVW<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1610017270255730688_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T01:36:25Z<br>另一个视频中，一辆警车试图离开，被民众堵住，有人直接坐在警车上阻止其离开。
-随后司机下车与民众交涉。 https://t.co/vla3yr1N7Q<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609966858542669824_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-03T04:58:25Z<br>在警车被掀翻后，民众纷纷上前与警车自拍合影 https://t.co/9YVHqHlFQb<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1610017693561913344_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T02:35:21Z<br>网友补充后续 
+视频显示，特警消防进场，随后将两名青年逮捕。 https://t.co/flQj9bKeON<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609981688540528644_0.jpg' width='450' height='500'><br><br>
