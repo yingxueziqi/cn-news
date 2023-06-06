@@ -1,1 +1,1 @@
-北京时间2023-01-30T22:02:26Z<br>#民间的疯子 https://t.co/ZzbUN32nLM<br><img src='/temp/video/2023/y-Month-1/au-Day-30/whyyoutouzhele/1620059867808686080_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-30T22:50:27Z<br>网友补充关于雅圣思教育基地存在虐待学员的一些新的视频证据。 https://t.co/a76C1TqK3R<br><img src='/temp/video/2023/y-Month-1/au-Day-30/whyyoutouzhele/1620071953582395392_0.jpg' width='450' height='500'><br><br>北京时间2023-01-30T22:31:14Z<br>胡鑫宇案今天的最新进展： https://t.co/8qWmybaz2M<br><img src='/temp/image/2023/y-Month-1/1620067114215432192_0.jpg' width='450' height='500'><br><br>
