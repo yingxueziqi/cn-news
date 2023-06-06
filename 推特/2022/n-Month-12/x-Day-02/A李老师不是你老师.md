@@ -1,3 +1,1 @@
-北京时间2022-12-02T00:39:54Z<br>网友投稿，11月30日晚，山东省教育厅突然下达通知要求各大高校放假。
-结果今晚再次下发通知不再放假，要求学生留在学校。
-目前搜索山东高校放假 可以看到大量的内容 https://t.co/3jfq6hqdzz<br><img src='/temp/image/2022/n-Month-12/1598356225707720707_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598356225707720707_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598356225707720707_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598356225707720707_3.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T01:02:33Z<br>成都从明天起，去公共场所无需核酸证明，只需出示健康码即可。 https://t.co/sNyKb10Wus<br><img src='/temp/image/2022/n-Month-12/1598361925984854016_0.jpg' width='450' height='500'><br><br>
