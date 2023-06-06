@@ -1,3 +1,1 @@
-北京时间2022-11-14T22:49:55Z<br>网友投稿
-学校让班长报班里不戴口罩的 
-“最好得有一两个” https://t.co/Bh6MCwQWvl<br><img src='/temp/image/2022/o-Month-11/1592167953994289154_0.jpg' width='450' height='500'><br><br>北京时间2022-11-14T22:47:47Z<br>https://t.co/FLbb2sqoI6<br><img src='/temp/image/2022/o-Month-11/1592167415445848067_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592167415445848067_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-14T23:05:49Z<br>郑州大学解封之后（虚假解封，只允许去食堂买饭，超市快递其他什么都没开门）限制时间限制人数限制地点买饭，于是就出现了下图中如同宗教仪式般的画面，学生们排队三个小时才能到窗口 https://t.co/CgHJSXSiUL<br><img src='/temp/image/2022/o-Month-11/1592171954500694017_0.jpg' width='450' height='500'><br><br>
