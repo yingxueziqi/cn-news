@@ -1,0 +1,1 @@
+北京时间2022-11-11T06:13:02Z<br>河北某学校已经开始采取宿舍上课形式，学生们在寝室里学习，老师在走廊上讲课 https://t.co/8whB2PpK3a<br><img src='/temp/video/2022/o-Month-11/o-Day-11/whyyoutouzhele/1590829916328984576_0.jpg' width='450' height='500'><br><br>
