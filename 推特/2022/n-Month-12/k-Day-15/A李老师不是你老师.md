@@ -1,1 +1,1 @@
-北京时间2022-12-15T04:51:33Z<br>逝者名为陈家辉，今年23岁，本科是山西医科大学的，保研到华西，据同校的学弟说，在山医拿到保外资格很难，他是非常优秀的一名学长。<br><br><br>
+北京时间2022-12-15T02:13:23Z<br>网友补充 https://t.co/UwZGxDnm2d<br><img src='/temp/image/2022/n-Month-12/1603090790212927489_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1603090790212927489_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1603090790212927489_2.jpg' width='450' height='500'><br><br>北京时间2022-12-15T01:14:42Z<br>据悉，事件起因应该是和讨薪有关<br><br><br>
