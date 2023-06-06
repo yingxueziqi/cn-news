@@ -1,1 +1,3 @@
-北京时间2022-11-05T00:36:55Z<br>一个孕妇来新疆旅游，结果被关了三个月，现在终于成功感染阳性了 https://t.co/TRIniKNUBn<br><img src='/temp/image/2022/o-Month-11/1588571001226657796_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588571001226657796_1.jpg' width='450' height='500'><br><br>北京时间2022-11-05T00:00:28Z<br>再次说明谣言就是遥遥领先的预言 https://t.co/DB4YVFfPiH<br><img src='/temp/image/2022/o-Month-11/1588561826253770754_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588561826253770754_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-05T00:05:23Z<br>网友投稿
+此刻的南京栖霞区燕子矶海赋尚城
+因为长时间的封控，导致大家还不起房贷车贷，没办法正常生活，今晚居民们聚集在一起要求解封 https://t.co/W4X72hmxPh<br><img src='/temp/video/2022/o-Month-11/u-Day-05/whyyoutouzhele/1588563064047427585_0.jpg' width='450' height='500'><br><br>
