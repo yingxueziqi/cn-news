@@ -1,4 +1,6 @@
-北京时间2022-11-06T06:49:47Z<br>上海静安区大白游行示威
-要求政府支付被拖欠的工资
-只能说如果连上海静安都没钱了的话，很可能其他地方的状况会更糟糕
-接下来可能全国各地老百姓还没站出来，大白就先起义了。 https://t.co/rs4pHLBy2b<br><img src='/temp/video/2022/o-Month-11/t-Day-06/whyyoutouzhele/1589027224912789504_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-06T06:06:49Z<br>今晚一条在朋友圈广为流传的图片：
+新疆乌鲁木齐，孩子需要去北京做手术，但是始终无法获得入京手续，从10月5日开始一拖再拖，想打电话反应，发现所有电话都打不通。
+再拖下去孩子就完了 https://t.co/NI61Yna093<br><img src='/temp/image/2022/o-Month-11/1589016412236189696_0.jpg' width='450' height='500'><br><br>北京时间2022-11-06T00:13:00Z<br>好像有道理 https://t.co/TAWdPyQRLS<br><img src='/temp/image/2022/o-Month-11/1588927369049423874_0.jpg' width='450' height='500'><br><br>北京时间2022-11-06T01:17:12Z<br>李老师好，匿名投稿一个我和朋友做出来的视频。
+这个视频后半段留有约40秒的空白，希望能有更多网友传播。如果有网友想要在后面的空白处二创以及补充，那就更好了。 https://t.co/LaGDMdxyTL<br><img src='/temp/video/2022/o-Month-11/t-Day-06/whyyoutouzhele/1588943526791823361_0.jpg' width='450' height='500'><br><br>北京时间2022-11-06T01:30:05Z<br>李老师 微博热一实时 又开始赛博游行了 
+而且我个人感觉哈 和偷着乐那一天最大的不一样的是 这次的实时号 很多人都在自述自己三年前做小粉红的经历。。。不是那种有饭吃就又感恩的那种！！
+感觉他们都非常认真地在后悔。。。培养兔兔要花十几年 兔转神可能就是几个月甚至一晚上。。。 https://t.co/4vQ0brc4CS<br><img src='/temp/image/2022/o-Month-11/1588946770511671296_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588946770511671296_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588946770511671296_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588946770511671296_3.jpg' width='450' height='500'><br><br>北京时间2022-11-06T00:56:00Z<br>https://t.co/8sW7Il7mbE<br><img src='/temp/image/2022/o-Month-11/1588938190236286976_0.jpg' width='450' height='500'><br><br>
