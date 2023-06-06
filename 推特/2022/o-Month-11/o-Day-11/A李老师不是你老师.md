@@ -1,1 +1,5 @@
-北京时间2022-11-11T23:07:58Z<br>笑死我了 https://t.co/NypLttmUPa<br><img src='/temp/video/2022/o-Month-11/o-Day-11/whyyoutouzhele/1591085330844684288_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-11T22:18:55Z<br>从起床看清零笑话看的嘴都笑歪了
+我知道你们很急，但是你们先别急
+虽然国家要躺平，但是你可以不躺平嘛。
+你完全可以把自己关在家里不出门，每天给自己做抗原自测，外卖软件也能满足你的食物供应需求，只要自己放楼道里消杀一下就可以了。
+面对新冠，国家战败了，但是你没有！<br><br><br>北京时间2022-11-11T21:42:00Z<br>https://t.co/J0NjDfa426<br><img src='/temp/image/2022/o-Month-11/1591063695681064962_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591063695681064962_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591063695681064962_2.jpg' width='450' height='500'><br><br>北京时间2022-11-11T22:00:00Z<br>谁看了不说有病 https://t.co/QcOjPeTeXj<br><img src='/temp/video/2022/o-Month-11/o-Day-11/whyyoutouzhele/1591068227358318593_0.jpg' width='450' height='500'><br><br>北京时间2022-11-11T22:38:00Z<br>河南省许昌市鄢陵县方舱隔离点，人死了就想赶快拉走了事，根本不算医院，只是临时搭建的铁皮箱子。把人拉进去就不管了，年龄大的老人根本没有人管，还有很多小孩子在里面，下面的乡镇村庄全面封锁，铁丝锁门，上街就抓走，许多老人都买不到吃的，只能在家里挨饿 https://t.co/5RU0UEPcxw<br><img src='/temp/video/2022/o-Month-11/o-Day-11/whyyoutouzhele/1591077788768952324_0.jpg' width='450' height='500'><br><br>
