@@ -1,1 +1,2 @@
-北京时间2022-11-06T22:21:34Z<br>手机内外，两个世界 https://t.co/M5eGASAAaG<br><img src='/temp/video/2022/o-Month-11/t-Day-06/whyyoutouzhele/1589261716386648064_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-06T18:27:59Z<br>张家口万全区家长跪着求接孩子回家 https://t.co/JGxMOmjaST<br><img src='/temp/image/2022/o-Month-11/1589202933396439042_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589202933396439042_1.jpg' width='450' height='500'><br><br>北京时间2022-11-06T17:05:17Z<br>继前天的兴光A9小区母亲跳楼事件之后，
+今天呼和浩特市城建小区14：44又一个跳楼的。 https://t.co/uan18dUQh1<br><img src='/temp/video/2022/o-Month-11/t-Day-06/whyyoutouzhele/1589182120354025472_0.jpg' width='450' height='500'><br><br>
