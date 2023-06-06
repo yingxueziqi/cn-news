@@ -1,2 +1,2 @@
-北京时间2023-02-13T07:18:33Z<br>网友投稿
-2010年的焦点访谈和2022年的焦点访谈 https://t.co/64o5ebjCoU<br><img src='/temp/image/2023/x-Month-2/1624910860375187458_0.jpg' width='450' height='500'><br><br>
+北京时间2023-02-13T04:00:24Z<br>网友投稿
+今天，武汉的小学临时通知召开线上家长会，要孩子家长给家里老人科普这次医保改革，如果有意见以书面形式交老师，他们转交领导。 https://t.co/OfaMfH6eLZ<br><img src='/temp/image/2023/x-Month-2/1624860995951767553_0.jpg' width='450' height='500'><br><br>
