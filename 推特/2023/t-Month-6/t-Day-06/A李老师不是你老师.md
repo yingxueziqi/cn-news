@@ -1,0 +1,18 @@
+北京时间2023-06-06T20:18:52Z<br>后续：央视出面为涉事学校站台
+称“异物”为鸭脖，是正常食物。 https://t.co/G5qeONr4us<br><img src='/temp/image/2023/t-Month-6/1666057062143459329_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T20:11:34Z<br>前情提要
+https://t.co/YngTasfd6n<br><br><br>北京时间2023-06-06T20:11:13Z<br>网友投稿
+“指鼠为鸭”事件在网上继续发酵
+一名小学老师发布视频，通过“指鼠为鸭”教育孩子们在面对来自权威者的错误时，一定要有勇气去反抗，要有独立思考能力。
+视频爆火后，作者表示某些压力不得不删除视频。 https://t.co/XIT4x5jjLg https://t.co/q7q1XHTDj5<br><img src='/temp/video/2023/t-Month-6/t-Day-06/whyyoutouzhele/1666055137415118848_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:59:32Z<br>根据网传消息，出事车辆为一辆大众ID4，车辆为网约车，疑似因为网约车平台压榨太狠导致司机疲劳驾驶。 https://t.co/WItfzSRtPQ<br><img src='/temp/image/2023/t-Month-6/1666052200303321093_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:58:56Z<br>网友投稿
+6月5日，杭州一小客车撞上收费站，造成四人死亡。 https://t.co/CdYOWhGiBf<br><img src='/temp/video/2023/t-Month-6/t-Day-06/whyyoutouzhele/1666052047722905601_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:54:31Z<br>南京理工大学紫金学院发生伤人事件案件 补充视频 https://t.co/gR6drLKNn2<br><img src='/temp/video/2023/t-Month-6/t-Day-06/whyyoutouzhele/1666050937964617728_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:52:24Z<br>网友投稿
+6月5日，有消息报道山东教育厅发布通知，为防止高考替考行为，高考期间全省高校学生不得请假离校。 https://t.co/bOmf8gLEi0<br><img src='/temp/image/2023/t-Month-6/1666050403748704257_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:50:23Z<br>网友投稿
+6月4日，有公众号发布文章《继城管、农管之后，文管也闪亮登场了》，各地积极组织文化市场综合执法队，甚至配备了无人机。
+作者表示，相信过不了几年，文化市场将进一步晴朗，意识形态将进一步统一。 https://t.co/MJOW3wJfuw<br><img src='/temp/image/2023/t-Month-6/1666049897299165186_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666049897299165186_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666049897299165186_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666049897299165186_3.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:44:45Z<br>RT @ngocneng: #六四34周年 香港现场：聚光灯下抓人、黑暗中响起《血染的风采》
+https://t.co/m0MvOFPWnr
+六四当日，5000余名警察布控，共有23人以“涉嫌破坏社会安宁”带走。即使在高压下，香港市民仍然用各种方式进行他们的悼念。而在维园里26…<br><br><br>北京时间2023-06-06T19:31:36Z<br>网友投稿
+6月4日，长沙。
+网传一群公职人员疑似在某爱国教育基地拍摄宣传视频，但当听到“一切为了人民”时集体笑场。 https://t.co/68bDZSW3cB<br><img src='/temp/video/2023/t-Month-6/t-Day-06/whyyoutouzhele/1666045167512559617_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:26:08Z<br>网友投稿
+6月5日，南京理工大学紫金学院发生伤人事件案件，据称一名学生捅伤另一名学生后割腕。 https://t.co/JEKr0YiAFu<br><img src='/temp/image/2023/t-Month-6/1666043791625601025_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666043791625601025_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666043791625601025_2.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666043791625601025_3.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:20:27Z<br>https://t.co/s81Mq4FqYV<br><img src='/temp/image/2023/t-Month-6/1666042364652077056_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666042364652077056_1.jpg' width='450' height='500'><br><br>北京时间2023-06-06T19:19:59Z<br>网友投稿
+6月6日中午，长沙地铁三号线出口发生一起面包车恶意撞人事件，目前9人受伤，其中一人伤势较重。
+
+https://t.co/NZkh46IlN7<br><img src='/temp/video/2023/t-Month-6/t-Day-06/whyyoutouzhele/1666042246251020288_0.jpg' width='450' height='500'><br><br>
