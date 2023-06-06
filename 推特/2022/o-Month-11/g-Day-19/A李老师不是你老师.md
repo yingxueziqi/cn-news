@@ -1,4 +1,1 @@
-北京时间2022-11-19T21:13:56Z<br>网友投稿
-合肥工业大学 https://t.co/pgrrRYsnEK<br><img src='/temp/image/2022/o-Month-11/1593955734773026816_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T20:43:33Z<br>网友投稿
-北京大学，每天最后十名做核酸的同学将会被示众 https://t.co/Tg8Q63Yz9x<br><img src='/temp/image/2022/o-Month-11/1593948090452647946_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T22:58:10Z<br>网信办发布新规，自12月15日开始，所有平台实行实名认证，未实名认证的账号将无法进行跟帖，评论。
-好日子还在后面 https://t.co/6F84P1oRHj<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593981965765582851_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1593981965765582851_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1593981965765582851_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T09:27:15Z<br>广州华南师范大学，用吊机给学生宿舍楼送物资。 https://t.co/Ra7kK5xgDu<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593777892424564736_0.jpg' width='450' height='500'><br><br>
