@@ -1,3 +1,3 @@
-北京时间2023-03-16T02:52:39Z<br>网友投稿
-曹芷馨的代理律师今天发文，称自己连续多天抢号，希望与当事人会面，然而在会见当天，看守所以“办案单位提审”为由取消了会见。
-微博原文https://t.co/LInNWgRyCR https://t.co/FvlSojSx4S<br><img src='/temp/image/2023/w-Month-3/1636077969201405952_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636077969201405952_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636077969201405952_2.jpg' width='450' height='500'><br><br>
+北京时间2023-03-16T03:01:18Z<br>网友投稿
+3月15日，广西北海银海区福成镇东村，因养殖沙虫的海地归属和相关权益等问题，村民与相关部门发生冲突。
+期间有几名村民被带走。 https://t.co/SsuRe6DVXK<br><img src='/temp/video/2023/w-Month-3/j-Day-16/whyyoutouzhele/1636080145847943169_0.jpg' width='450' height='500'><br><br>
