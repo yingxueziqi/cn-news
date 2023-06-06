@@ -1,2 +1,2 @@
-北京时间2022-11-07T00:58:22Z<br>中共六台播放的复仇者联盟把整句“复仇者集结”删掉了 https://t.co/oHwBPrpEjy<br><img src='/temp/image/2022/o-Month-11/1589301176084103168_0.jpg' width='450' height='500'><br><br>北京时间2022-11-07T00:55:29Z<br>额 https://t.co/BLdRF71Ufb<br><img src='/temp/image/2022/o-Month-11/1589300448007053312_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589300448007053312_1.jpg' width='450' height='500'><br><br>北京时间2022-11-07T02:31:55Z<br>当然了，刘红英书记在朋友圈里的回应也不让人意外。毕竟对于她来说，她在执行党交给她的任务，是在听党指挥，为党负责
-她不需要为人民负责，也不需要在乎人民想什么，这些对她都没有影响，只要她管的好，她就依然有机会一步登天，但是假若她因为对人民有一丝怜悯而违背了清零政策，明天她就可以滚蛋了 https://t.co/BXYPydtX0N<br><img src='/temp/image/2022/o-Month-11/1589324717236051969_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589324717236051969_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-07T06:30:23Z<br>好久不见！一个视频让你搞定关于意大利留学的疑问
+李老师意大利留学DIY指南 手把手教你如何自助式完成马可波罗/图兰朵计划留学签证办理 如何润意大利 https://t.co/jrlsKp3Ykc 来自 @YouTube<br><br><br>
