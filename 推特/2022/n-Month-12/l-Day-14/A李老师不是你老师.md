@@ -1,0 +1,2 @@
+北京时间2022-12-14T00:11:20Z<br>网友投稿
+今天四川大学华西临床部一名专硕研究生，因确诊新冠依然坚持在岗位上，导致心跳骤停去世 https://t.co/VXKXS4dAzz<br><img src='/temp/image/2022/n-Month-12/1602697691380781056_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602697691380781056_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602697691380781056_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602697691380781056_3.jpg' width='450' height='500'><br><br>
