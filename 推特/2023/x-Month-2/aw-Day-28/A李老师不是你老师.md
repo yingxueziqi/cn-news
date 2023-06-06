@@ -1,2 +1,2 @@
-北京时间2023-02-28T00:04:55Z<br>一段早前视频显示，一群身穿制服的人员一路沿街向民众喷洒辣椒水，而另一群民众紧随其后在录制和直播 https://t.co/8aBhVqduGR<br><img src='/temp/video/2023/x-Month-2/aw-Day-28/whyyoutouzhele/1630237550546763776_0.jpg' width='450' height='500'><br><br>北京时间2023-02-28T00:00:28Z<br>网友投稿
-该事件引发了周边大量群众前往围观，根据网友介绍，目前事发地杨八刀村已经断电，非公务车辆全部被要求掉头，所有直播都会在几分钟内被掐断 https://t.co/33cJGwnhH9<br><img src='/temp/video/2023/x-Month-2/aw-Day-28/whyyoutouzhele/1630236434396241928_0.jpg' width='450' height='500'><img src='/temp/video/2023/x-Month-2/aw-Day-28/whyyoutouzhele/1630236434396241928_1.jpg' width='450' height='500'><img src='/temp/video/2023/x-Month-2/aw-Day-28/whyyoutouzhele/1630236434396241928_2.jpg' width='450' height='500'><br><br>
+北京时间2023-02-28T01:11:08Z<br>网友投稿
+今天稍晚，死者家属的一些事情经过陈述 https://t.co/2WXddTXA9g<br><img src='/temp/video/2023/x-Month-2/aw-Day-28/whyyoutouzhele/1630254215674187778_0.jpg' width='450' height='500'><br><br>
