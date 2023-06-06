@@ -1,0 +1,1 @@
+北京时间2022-12-09T19:40:56Z<br>网友投稿 今天北京医院的取药窗口 https://t.co/KG0BbLJNsu<br><img src='/temp/image/2022/n-Month-12/1601180090037305347_0.jpg' width='450' height='500'><br><br>
