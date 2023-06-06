@@ -1,1 +1,2 @@
-北京时间2023-01-19T06:35:59Z<br>额，一个Lunar New Year至于吗... https://t.co/HRKNijoHKM<br><img src='/temp/image/2023/y-Month-1/1615840451231379460_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1615840451231379460_1.jpg' width='450' height='500'><br><br>
+北京时间2023-01-19T00:34:22Z<br>网友投稿
+不理解从什么时候开始中国老百姓的审美苛刻到如此的程度…… https://t.co/9OO7heEw88<br><img src='/temp/video/2023/y-Month-1/g-Day-19/whyyoutouzhele/1615749450432905226_0.jpg' width='450' height='500'><br><br>
