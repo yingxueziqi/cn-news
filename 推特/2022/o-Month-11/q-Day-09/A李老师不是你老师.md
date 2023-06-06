@@ -1,3 +1,2 @@
-北京时间2022-11-09T21:41:32Z<br>甘肃酒泉某中学
-两名学生因在居家隔离期间下楼，被学校开除学籍。
-我寻思这在家里的事儿也要归你学校管吗？ https://t.co/Hvp554H8D5<br><img src='/temp/image/2022/o-Month-11/1590338803130339331_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T23:43:00Z<br>嗯 https://t.co/brCnnntWtV<br><img src='/temp/image/2022/o-Month-11/1590369370647166978_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T19:47:08Z<br>https://t.co/QtHuh51Fmd<br><img src='/temp/image/2022/o-Month-11/1590310012391653377_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T18:54:42Z<br>这届人民咋这么滑头 https://t.co/5XhqL9Dv2I<br><img src='/temp/image/2022/o-Month-11/1590296817006039040_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590296817006039040_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590296817006039040_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590296817006039040_3.jpg' width='450' height='500'><br><br>
+北京时间2022-11-09T21:40:00Z<br>网友投稿
+河北宣化世纪光华小区民众要求解封 https://t.co/JjbBFPr6PC<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590338416692133890_0.jpg' width='450' height='500'><br><br>
