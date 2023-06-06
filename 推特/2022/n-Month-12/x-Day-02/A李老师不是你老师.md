@@ -1,2 +1,1 @@
-北京时间2022-12-02T07:07:08Z<br>12月1日，各大媒体纷纷开始报道，无证据表明新冠存在后遗症。
-在过去三年里，新冠后遗症始终是一个在中国民众心中挥之不去的阴影，亦是在之后世界各国逐渐放开之后国内清零派据理力争的焦点所在。 https://t.co/fgPIf2AEnH<br><img src='/temp/image/2022/n-Month-12/1598453674543665166_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598453674543665166_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598453674543665166_2.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T20:59:10Z<br>此刻 上海某小区， 民众下楼要求解封 https://t.co/nWSCjaKXtp<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598663061677608961_0.jpg' width='450' height='500'><br><br>
