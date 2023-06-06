@@ -1,0 +1,2 @@
+北京时间2022-12-30T04:29:44Z<br>网友投稿
+今晚广州白云机场，在国内已经明确会在8号完全放开的情况下广州的政策依然还是5+3，因此今天海外入境回来的学生旅客与警察发生了冲突 https://t.co/NKdjGCQYki<br><img src='/temp/video/2022/n-Month-12/au-Day-30/whyyoutouzhele/1608560922548920320_0.jpg' width='450' height='500'><br><br>
