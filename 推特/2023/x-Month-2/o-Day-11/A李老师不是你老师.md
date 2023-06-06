@@ -1,5 +1,1 @@
-北京时间2023-02-11T05:14:17Z<br>再次搬石砸脚
-2月10号，央视新闻报道日本鲈鱼放射性元素銫137含量超标，规定50Bp每公斤，结果检测为84.5Bp每公斤
-报道一出，评论区大批网友指责日本排放核废水
-然而有网友查证国家食品放射物标准GB14882-94中规定，中国海产銫安全标准为800Bp每公斤。
-也就是说目前的日本鲈鱼比中国标准好十倍 https://t.co/qPOwaiRPSo<br><img src='/temp/video/2023/x-Month-2/o-Day-11/whyyoutouzhele/1624154814178381824_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624154814178381824_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624154814178381824_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624154814178381824_2.jpg' width='450' height='500'><br><br>
+北京时间2023-02-11T00:29:54Z<br>幽默了 https://t.co/STmwjbvX8u<br><img src='/temp/image/2023/x-Month-2/1624083245833891840_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624083245833891840_1.jpg' width='450' height='500'><br><br>
