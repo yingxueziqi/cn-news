@@ -1,4 +1,1 @@
-北京时间2022-11-21T08:53:53Z<br>网友投稿
-河北工程学院，从前天晚上开始，学生们就被迫被学校赶出来了（要求请病假）
-很多同学没有住处，都住在ATM机里，和高铁站下面。
-靠邯郸市民自发救助，学校没有一点表示 https://t.co/6fR6kzWaLi<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594494273394720769_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594494273394720769_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-21T21:17:00Z<br>陕西某大学： https://t.co/XpUzMNUIY6<br><img src='/temp/image/2022/o-Month-11/1594681282843246593_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T18:24:03Z<br>真·骨灰给你扬了 https://t.co/LkxAqgyxSP<br><img src='/temp/image/2022/o-Month-11/1594637759548891138_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T08:34:11Z<br>https://t.co/4Hw91A8F9H<br><img src='/temp/image/2022/o-Month-11/1594489313164726272_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T19:24:30Z<br>有这种事吗？有没有家里有孩子的来说说 https://t.co/uwMPMaxa0r<br><img src='/temp/image/2022/o-Month-11/1594652970834329600_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T23:21:28Z<br>https://t.co/ux7LjA27Gt<br><img src='/temp/image/2022/o-Month-11/1594712608841797632_0.jpg' width='450' height='500'><br><br>
