@@ -1,1 +1,5 @@
-北京时间2022-12-17T01:31:04Z<br>网友辟谣 https://t.co/MuT7g5vWNa<br><img src='/temp/image/2022/n-Month-12/1603804919500152833_0.jpg' width='450' height='500'><br><br>北京时间2022-12-17T06:50:22Z<br>网友补充 https://t.co/4RNA1kST2P<br><img src='/temp/image/2022/n-Month-12/1603885271564664834_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-17T20:32:22Z<br>国内大众普遍认为白纸运动和大学生对政策转向造成了最大的影响，但是事实上在那一周里
+富士康的工人发生了最激烈的冲突
+乌鲁木齐的市民冲进了师部
+27日晚武汉汉正街几万人上街，是当晚规模最大和破坏公共设施最多的城市
+它们的共同点是没有举白纸，也没有喊下台，而是要求解封。 https://t.co/pjzgQDEIQh<br><img src='/temp/image/2022/n-Month-12/1604092134885318657_0.jpg' width='450' height='500'><br><br>
