@@ -1,1 +1,2 @@
-北京时间2022-12-02T23:43:23Z<br>北京 今晚多处核酸亭正在被拆除 https://t.co/NiyXeOyRrW<br><img src='/temp/image/2022/n-Month-12/1598704387920216064_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598704387920216064_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T21:01:31Z<br>今晚8点左右，山东建筑大学 封寝第十天 学生喊楼要求回家 https://t.co/K2wKNMdR1f<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598663655129845761_0.jpg' width='450' height='500'><br><br>北京时间2022-12-02T17:14:26Z<br>12月2日，河北保定
+因供暖不足，某小区的业主们手持写着“冷”的白纸在街上游行示威，并高喊“大唐（供暖公司）不作为” https://t.co/AO9tp4F19P<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598606506056101889_0.jpg' width='450' height='500'><br><br>
