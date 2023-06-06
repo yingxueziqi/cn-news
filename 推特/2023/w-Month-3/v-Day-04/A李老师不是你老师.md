@@ -1,3 +1,3 @@
-北京时间2023-03-04T19:32:34Z<br>网友投稿 https://t.co/3YRQnZTmCp<br><img src='/temp/image/2023/w-Month-3/1631980950954426372_0.jpg' width='450' height='500'><br><br>北京时间2023-03-04T20:36:50Z<br>3月1日，网传四川广元剑阁县白龙中学中考百日冲刺誓师大会上，学校组织学生向家长下跪磕头
-视频曝光后，有网友提出质疑，并表示应拒绝愧疚式教育。4日，县教育局回应称，已收到家长反馈，目前正在调查。 https://t.co/tkDmZCseZ8<br><img src='/temp/video/2023/w-Month-3/v-Day-04/whyyoutouzhele/1631997127441219586_0.jpg' width='450' height='500'><br><br>北京时间2023-03-04T20:18:41Z<br>网友投稿
-湖北广播电视台《长江说法》消息，3月2日，无锡首批涉及疫情个人数据实现成功销毁，销毁数据达十亿条。 https://t.co/T0n5PIWFd3<br><img src='/temp/video/2023/w-Month-3/v-Day-04/whyyoutouzhele/1631992557860184065_0.jpg' width='450' height='500'><br><br>北京时间2023-03-04T17:08:26Z<br>全国政协委员戴斌表示，春节期间国内出游人数达3.08亿人次，标志着中国护照的含金量越来越高。 https://t.co/WoMcr5MO08<br><img src='/temp/image/2023/w-Month-3/1631944678978342916_0.jpg' width='450' height='500'><br><br>
+北京时间2023-03-04T19:06:52Z<br>@wangzhian8848 谢谢王局，祝您的节目越来越好，YouTube早日破百万订阅💜<br><br><br>北京时间2023-03-04T19:29:34Z<br>@wuyuesanren 谢谢散人老师，您的节目我基本上每期不落下😆<br><br><br>北京时间2023-03-04T19:05:25Z<br>@torontobigface 😚<br><br><br>北京时间2023-03-04T08:20:17Z<br>@F_linxin 言重了，谈不上那么伟大。我只是在恰巧的节点做了自己认为应该做的事情。
+我有很多错误和不成熟，也很感谢大家的包容
+还是希望大家能够记得，真正的英雄们此刻依然深陷牢笼。<br><br><br>
