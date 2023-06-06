@@ -1,0 +1,2 @@
+北京时间2023-01-09T03:10:41Z<br>网友投稿
+因为不能说真话，部级期刊《戏剧与影视评论》编辑部集体辞职 https://t.co/wHPbBYO4Vn<br><img src='/temp/image/2023/y-Month-1/1612164906760945665_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612164906760945665_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612164906760945665_2.jpg' width='450' height='500'><br><br>
