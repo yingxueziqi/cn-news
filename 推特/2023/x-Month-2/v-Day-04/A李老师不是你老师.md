@@ -1,1 +1,2 @@
-北京时间2023-02-04T02:52:54Z<br>@mikepompeo 你算是把互联网玩明白了<br><br><br>
+北京时间2023-02-04T19:45:41Z<br>https://t.co/tFFrS4ndQG<br><img src='/temp/video/2023/x-Month-2/v-Day-04/whyyoutouzhele/1621837391794257920_0.jpg' width='450' height='500'><br><br>北京时间2023-02-04T22:56:50Z<br>2月4日傍晚，许广高速湖南境内望城收费站附近多车相撞起火。
+据当地应急部门消息，消防、高速交警都已到现场处置，目前伤亡情况不明。网友发布的视频中，多辆大货车和小车挤在一起，大火熊熊燃烧，现场浓烟滚滚。 https://t.co/p2hjE0puef<br><img src='/temp/video/2023/x-Month-2/v-Day-04/whyyoutouzhele/1621885496753274885_0.jpg' width='450' height='500'><img src='/temp/video/2023/x-Month-2/v-Day-04/whyyoutouzhele/1621885496753274885_1.jpg' width='450' height='500'><br><br>
