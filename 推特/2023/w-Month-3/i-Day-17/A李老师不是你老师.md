@@ -1,1 +1,3 @@
-北京时间2023-03-17T06:24:39Z<br>@Qisheng_Gao BBC中文和自由亚洲呢？？在另一座塔里吗<br><br><br>
+北京时间2023-03-17T20:47:55Z<br>网友投稿
+据称，一些上海的年轻人做了一件纪念上海封城幸存者的T-shirt出售，16日晚，根据出售记录，购买衣服的人被警察挨个敲门带走，今天白天还在继续搜索购买衣服的人，但是只是把衣服搜走。 https://t.co/xMFxoJLHRX<br><img src='/temp/image/2023/w-Month-3/1636710958218264576_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636710958218264576_1.jpg' width='450' height='500'><br><br>北京时间2023-03-17T09:36:04Z<br>网友投稿
+在湖南台最新的两岸歌曲综艺节目《声声不息·宝岛季》中，在播放歌手艾怡良获金曲奖的片段时，可能是因为台下政治敏感或生活西化的人太多，节目中竟然将台下所有人全部打码 https://t.co/Vcyva41Flk<br><img src='/temp/image/2023/w-Month-3/1636541878836383745_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636541878836383745_1.jpg' width='450' height='500'><br><br>
