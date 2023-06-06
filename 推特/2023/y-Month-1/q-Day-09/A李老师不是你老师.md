@@ -1,2 +1,1 @@
-北京时间2023-01-09T19:29:48Z<br>著名战狼发言人，“偷着乐”文化倡导者，梗王，原外交部新闻司副司长赵立坚现已调任边界与海洋事务司副司长 https://t.co/sS620PKOPI<br><img src='/temp/image/2023/y-Month-1/1612411311115341825_0.jpg' width='450' height='500'><br><br>北京时间2023-01-09T21:31:45Z<br>网友投稿
-爱国大V们疑似集体发声： https://t.co/GotPvJRE3K<br><img src='/temp/image/2023/y-Month-1/1612441999642136577_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-09T22:34:08Z<br>网友投稿 https://t.co/7q1y2zrh1S<br><img src='/temp/image/2023/y-Month-1/1612457699672727552_0.jpg' width='450' height='500'><br><br>北京时间2023-01-09T21:19:07Z<br>哈？<br><br><br>
