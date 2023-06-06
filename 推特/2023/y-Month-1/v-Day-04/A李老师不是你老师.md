@@ -1,1 +1,1 @@
-北京时间2023-01-04T07:38:53Z<br>网友投稿称，北京郊区正在加紧建造新的焚化炉，要求在1月8号前完工 https://t.co/dwjqwfMiwL<br><img src='/temp/video/2023/y-Month-1/v-Day-04/whyyoutouzhele/1610420464735719425_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-04T07:39:22Z<br>https://t.co/BOwwnbKm46<br><img src='/temp/image/2023/y-Month-1/1610420587540660231_0.jpg' width='450' height='500'><br><br>
