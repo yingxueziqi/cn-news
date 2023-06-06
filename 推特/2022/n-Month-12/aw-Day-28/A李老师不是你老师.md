@@ -1,5 +1,3 @@
-北京时间2022-12-28T01:26:16Z<br>【投票】2022年十大中文公共议题票选 
-本次投票旨在为中文互联网留下一份2022年民众记忆。
-所有选项随机排列，希望大家可以选择10-12个你心目中所认为的2022年最重要的公共议题。
-最终结果将于2022年12月31日公布。
-https://t.co/xKXPZRrlDv<br><br><br>
+北京时间2022-12-28T20:52:14Z<br>网友投稿 西安殡仪馆 https://t.co/tpLbF7bK6E<br><img src='/temp/image/2022/n-Month-12/1608083402976071683_0.jpg' width='450' height='500'><br><br>北京时间2022-12-28T18:04:17Z<br>网友投稿
+人民日报：十二句话记住2022
+评论区： https://t.co/kB4OpvTX4Y<br><img src='/temp/image/2022/n-Month-12/1608041138086203394_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608041138086203394_1.jpg' width='450' height='500'><br><br>
