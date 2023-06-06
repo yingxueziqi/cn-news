@@ -1,2 +1,1 @@
-北京时间2023-02-02T02:35:47Z<br>看到这个考题我也挺震惊的，我本以为这种争论只是停留在网络上，没想到居然是考卷上的题目。
-这或许也就不难理解现在的低龄化粉红群体——他们只是在互联网上换个地方做试卷而已。 https://t.co/iMxpEIbXlo<br><img src='/temp/image/2023/x-Month-2/1620853435087343617_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1620853435087343617_1.jpg' width='450' height='500'><br><br>
+北京时间2023-02-02T01:06:46Z<br>在国内如何安全地做影评： https://t.co/Zvtpa1cWfC<br><img src='/temp/image/2023/x-Month-2/1620831035016765440_0.jpg' width='450' height='500'><br><br>
