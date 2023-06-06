@@ -1,0 +1,3 @@
+北京时间2022-12-18T07:12:56Z<br>网友讲述目前从国外入境上海的经历（多图预警） https://t.co/Hq5X0vIBsX<br><img src='/temp/image/2022/n-Month-12/1604253338287177730_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604253338287177730_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604253338287177730_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604253338287177730_3.jpg' width='450' height='500'><br><br>北京时间2022-12-18T00:12:44Z<br>网友投稿
+17日上午 香港 赤柱监狱外，一名女子被多人殴打及挟持上客货车带走。
+警方接到报警后即时截停，并在10公里外、海洋公园万豪酒店对开马路，截获涉事客货车及救出女事主，她头及手脚受伤送院，事件中3男1女被捕。 https://t.co/Zn9xSevbH5<br><img src='/temp/video/2022/n-Month-12/h-Day-18/whyyoutouzhele/1604147592614580225_0.jpg' width='450' height='500'><br><br>
