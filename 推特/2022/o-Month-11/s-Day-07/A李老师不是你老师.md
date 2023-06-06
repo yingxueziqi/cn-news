@@ -1,1 +1,4 @@
-北京时间2022-11-07T05:38:19Z<br>笑死我了 https://t.co/R4qGOl8y2P<br><img src='/temp/video/2022/o-Month-11/s-Day-07/whyyoutouzhele/1589371625320816640_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-07T04:41:44Z<br>曾经的南方科技大学VS现在的南方科技大学 https://t.co/fmyFyEBIxP<br><img src='/temp/image/2022/o-Month-11/1589357387353554944_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589357387353554944_1.jpg' width='450' height='500'><br><br>北京时间2022-11-07T01:07:55Z<br>有消息称新疆开始鼓励全民参与信息搜集工作（抓特务），希望大家提高警惕防范列表的粉红小人。
+文中称“如果有人联合起来要出门...将按照20-5000元的标准进行奖励”
+但是已经发上网的消息就不值钱了，因此鼓励市民对周围人进行“预判”。
+所以大家以后有事一定要第一时间发网上。 https://t.co/jEYrC17tG9<br><img src='/temp/image/2022/o-Month-11/1589303580078796805_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589303580078796805_1.jpg' width='450' height='500'><br><br>
