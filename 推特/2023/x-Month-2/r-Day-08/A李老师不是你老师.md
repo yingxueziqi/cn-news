@@ -1,0 +1,1 @@
+北京时间2023-02-08T07:31:17Z<br>土耳其地震后，一名父亲拉着废墟中女儿的手。 https://t.co/CWF3jPBaOs<br><img src='/temp/image/2023/x-Month-2/1623102126435053568_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1623102126435053568_1.jpg' width='450' height='500'><br><br>
