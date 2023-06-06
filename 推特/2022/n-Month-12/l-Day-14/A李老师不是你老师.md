@@ -1,1 +1,2 @@
-北京时间2022-12-14T00:29:08Z<br>网友补充 https://t.co/Pjmd0kjfRS<br><img src='/temp/image/2022/n-Month-12/1602702168519319552_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602702168519319552_1.jpg' width='450' height='500'><br><br>北京时间2022-12-14T00:47:21Z<br>网友补充 https://t.co/QfEh4aRpBh<br><img src='/temp/image/2022/n-Month-12/1602706752591511553_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-14T23:00:39Z<br>突发！今晚郑州 金达路地铁口
+一辆挖掘机在路口不停旋转并破坏周围车辆，之后被赶来的警察击毙。 https://t.co/xRcxDg8f5K<br><img src='/temp/video/2022/n-Month-12/l-Day-14/whyyoutouzhele/1603042289554755586_0.jpg' width='450' height='500'><br><br>
