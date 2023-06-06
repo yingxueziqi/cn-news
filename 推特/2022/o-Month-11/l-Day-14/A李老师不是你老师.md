@@ -1,1 +1,3 @@
-北京时间2022-11-14T18:48:50Z<br>https://t.co/fPlfYehQe6<br><img src='/temp/image/2022/o-Month-11/1592107280165908481_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592107280165908481_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592107280165908481_2.jpg' width='450' height='500'><br><br>
+北京时间2022-11-14T22:49:55Z<br>网友投稿
+学校让班长报班里不戴口罩的 
+“最好得有一两个” https://t.co/Bh6MCwQWvl<br><img src='/temp/image/2022/o-Month-11/1592167953994289154_0.jpg' width='450' height='500'><br><br>北京时间2022-11-14T22:47:47Z<br>https://t.co/FLbb2sqoI6<br><img src='/temp/image/2022/o-Month-11/1592167415445848067_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592167415445848067_1.jpg' width='450' height='500'><br><br>
