@@ -1,4 +1,8 @@
-北京时间2022-12-12T22:46:19Z<br>今晚 徐州医科大学 专硕研究生聚集抗议 https://t.co/USBZj2yENw<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602313904750825472_0.jpg' width='450' height='500'><br><br>北京时间2022-12-12T22:36:37Z<br>今晚 南昌大学江西医学院
-专硕生聚集抗议，要求同工同酬。
-据悉，和之前的各大医学院一样，同学们每个月斤1000的微薄规培收入和繁重的临床事务让他们不堪重负。
-约一个小时前，学校大门已锁，门口有警车，校内依旧在抗议。 https://t.co/CyTknelR9g<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602311463644938241_0.jpg' width='450' height='500'><br><br>北京时间2022-12-12T23:25:15Z<br>今晚 福州大学 因为针对返乡的方案朝令夕改。导致今晚学生聚集在三区操场抗议 https://t.co/cPRG77R63V<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602323702783348737_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-12T22:24:43Z<br>南京 今晚
+江苏人民医院专业学位硕士研究生为求公正待遇和合理政策聚集表态
+目前的情况是，医院领导到达现场，但是没有做出妥协。 https://t.co/Q4ixwESol7<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602308470161784834_0.jpg' width='450' height='500'><br><br>北京时间2022-12-12T22:12:23Z<br>广西大学 今晚提前破获了一起学生抗议活动
+起因是广西大学已经阳了几十个，但是一直没有放开，甚至正常考试。
+今天下午五点左右，有人在微博广西大学超话上提议晚上七点一起去西体
+随后有辅导员进入聊天群，导致群解散，同时广西大学超话被禁止发言。
+有人发帖称，校园内所有聚集的地方都被安保包围。 https://t.co/xOItKAMDzS<br><img src='/temp/image/2022/n-Month-12/1602305366620049414_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602305366620049414_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602305366620049414_2.jpg' width='450' height='500'><br><br>北京时间2022-12-12T19:54:44Z<br>网友投稿
+上海宣布逐步取消扫场所码的要求 https://t.co/PCMOata7Kv<br><img src='/temp/image/2022/n-Month-12/1602270725569712130_0.jpg' width='450' height='500'><br><br>
