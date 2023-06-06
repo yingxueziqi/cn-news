@@ -1,1 +1,6 @@
-北京时间2022-11-07T05:44:38Z<br>当然这个视频也挺讽刺的，需要看病的小孩在外面无法就医，里面的人却可以肆意的奔跑——也或许全中国封成这样，就是为了这红色围墙里的人可以过正常的生活<br><br><br>
+北京时间2022-11-07T19:45:00Z<br>呼和浩特官媒再发神文
+文章直指那位跳楼的母亲愧对父母愧对女儿愧对自己愧对国家愧对时代。 https://t.co/9tKbE1JCrR<br><img src='/temp/image/2022/o-Month-11/1589584700854571008_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589584700854571008_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589584700854571008_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589584700854571008_3.jpg' width='450' height='500'><br><br>北京时间2022-11-07T18:28:36Z<br>倒卖出疆证再实锤
+通话录音显示，一女子希望向一个熟人购买出疆证，对方表示一般人8000，从他的关系可以3000搞定，但是希望女子事成之后陪自己睡四次。
+并且强调女子所在的区域的疫情已经“全军覆没”
+也就是说，即使是最严重的疫区，大白亦可以放人出去。所以疫情扩散的罪魁祸首是？ https://t.co/CgradKTUC2<br><img src='/temp/video/2022/o-Month-11/s-Day-07/whyyoutouzhele/1589565475872477184_0.jpg' width='450' height='500'><img src='/temp/video/2022/o-Month-11/s-Day-07/whyyoutouzhele/1589565475872477184_1.jpg' width='450' height='500'><br><br>北京时间2022-11-07T20:20:00Z<br>说明台湾同胞在我国享受人上人待遇
+台湾人你们心动了吗?😆 https://t.co/N7DnjDlmt5<br><img src='/temp/image/2022/o-Month-11/1589593508339363840_0.jpg' width='450' height='500'><br><br>
