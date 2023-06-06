@@ -1,1 +1,3 @@
-北京时间2023-02-15T07:40:02Z<br>https://t.co/cdO1IjINf8<br><img src='/temp/image/2023/x-Month-2/1625641042291617793_0.jpg' width='450' height='500'><br><br>
+北京时间2023-02-15T18:09:16Z<br>2月15日上午，武汉和大连同时爆发了反医保改革游行示威。
+两地民众不约而同地唱起了国际歌
+据悉，此前在2月8日的武汉反医保改革游行示威中，曾有人声称如果政府不解决问题，将在2月15日进行更大规模的游行。 https://t.co/uLpiH8yh2g<br><img src='/temp/video/2023/x-Month-2/k-Day-15/whyyoutouzhele/1625799396351770624_0.jpg' width='450' height='500'><br><br>北京时间2023-02-15T18:42:58Z<br>多名网友投稿称自己收到了关于学校和当地颁布严加禁止审查学生使用vpn的公告 https://t.co/pE9lT0LK85<br><img src='/temp/image/2023/x-Month-2/1625807874612944896_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625807874612944896_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625807874612944896_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625807874612944896_3.jpg' width='450' height='500'><br><br>
