@@ -1,2 +1,2 @@
-北京时间2022-12-26T19:05:26Z<br>网友投稿
-河南洛阳三中新建学校工地农民工工资拖欠，工人用挖掘机私家车卡车堵住工地入口 https://t.co/ugRDBui97s<br><img src='/temp/image/2022/n-Month-12/1607331749763350529_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607331749763350529_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607331749763350529_2.jpg' width='450' height='500'><br><br>
+北京时间2022-12-26T21:02:38Z<br>网友投稿 https://t.co/6YJLHZNIoj<br><img src='/temp/image/2022/n-Month-12/1607361241718349825_0.jpg' width='450' height='500'><br><br>北京时间2022-12-26T19:03:55Z<br>值得一提的是，一直以来每天关注和发布美国疫情消息的沈逸老师转发了这条微博。<br><br><br>北京时间2022-12-26T23:53:12Z<br>消息得到验证 权威发布了
+新型冠状病毒肺炎更名为新型冠状病毒感染 https://t.co/uh9x052ciI<br><img src='/temp/image/2022/n-Month-12/1607404167458349058_0.jpg' width='450' height='500'><br><br>北京时间2022-12-26T21:50:55Z<br>有没有懂的说说<br><br><br>北京时间2022-12-26T23:55:24Z<br>@weadcc 我的评价是躺匪的全面胜利<br><br><br>
