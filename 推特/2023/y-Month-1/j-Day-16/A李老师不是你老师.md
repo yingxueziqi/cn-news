@@ -1,4 +1,2 @@
-北京时间2023-01-16T21:30:45Z<br>网友投稿
-今天，河南村镇银行的储户再次踏上维权之路 https://t.co/OthPEZboq5<br><img src='/temp/image/2023/y-Month-1/1614978464997847044_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1614978464997847044_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1614978464997847044_2.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1614978464997847044_3.jpg' width='450' height='500'><br><br>北京时间2023-01-16T22:04:50Z<br>网友投稿 今晚，重庆解放碑
-一名男子燃放烟花吸引关注，随后把菜刀架在自己脖子上用话筒表达诉求。
-之后被警察带走。 https://t.co/U5qQ7FS3jl<br><img src='/temp/video/2023/y-Month-1/j-Day-16/whyyoutouzhele/1614987043947352064_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-16T10:43:33Z<br>网友投稿
+江西九江市武宁县上汤乡，因工程欠薪，工人们用铲车堵住大门 https://t.co/Gofky2Favf<br><img src='/temp/image/2023/y-Month-1/1614815589448523776_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1614815589448523776_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1614815589448523776_2.jpg' width='450' height='500'><br><br>
