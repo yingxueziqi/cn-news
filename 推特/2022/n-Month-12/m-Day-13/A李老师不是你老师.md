@@ -1,4 +1,2 @@
-北京时间2022-12-13T21:35:28Z<br>警惕，我除了推特以外没有任何的账号，没有电报群。 https://t.co/nWr0nDDLxR<br><img src='/temp/image/2022/n-Month-12/1602658463842181121_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602658463842181121_1.jpg' width='450' height='500'><br><br>北京时间2022-12-13T23:15:01Z<br>网友投稿
-微博上，很多网友进入南京传媒学院超话进行嘲讽和指责 https://t.co/VwFKRSOHuk<br><img src='/temp/image/2022/n-Month-12/1602683516633882625_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602683516633882625_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602683516633882625_2.jpg' width='450' height='500'><br><br>北京时间2022-12-13T18:59:32Z<br>与社会面的全面开放形成鲜明对比的是，各地机关单位和国企正在执行更加严格的疫情防控政策。 https://t.co/K8PG1JIAiv<br><img src='/temp/image/2022/n-Month-12/1602619224089939968_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602619224089939968_1.jpg' width='450' height='500'><br><br>北京时间2022-12-13T18:03:22Z<br>网友投稿
-辉瑞新冠特效药Paxlovid在国内开始网售
-定价2980元/盒 https://t.co/fcZYM0tbCD<br><img src='/temp/image/2022/n-Month-12/1602605086487764993_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T21:28:09Z<br>网友投稿
+目前的情况下，放开反而“害了”我们 https://t.co/lAzscD6inK<br><img src='/temp/image/2022/n-Month-12/1602656624522530816_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602656624522530816_1.jpg' width='450' height='500'><br><br>
