@@ -1,1 +1,1 @@
-北京时间2022-11-08T17:24:09Z<br>当你还活在梦里的时候，微博其实是有免费“叫醒服务”的 https://t.co/z4eNaJ6iWU<br><img src='/temp/image/2022/o-Month-11/1589911641906610177_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589911641906610177_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-08T18:35:14Z<br>重庆的四川外国语学院 学生封在宿舍里不让出门 配餐不及时不说 菜里还有烟头 https://t.co/tB2xZadkow<br><img src='/temp/image/2022/o-Month-11/1589929531091038208_0.jpg' width='450' height='500'><br><br>
