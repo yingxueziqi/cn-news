@@ -1,0 +1,3 @@
+北京时间2023-02-15T07:39:45Z<br>网友投稿
+山东沂源一所中学发生师生冲突，为了升学率强制分科，强制尖子生学俄语，最后造成教学资源分配不均，导致学生与老师发生肢体冲突，据传多名学生受伤。 https://t.co/biS8U6r4Mx<br><img src='/temp/image/2023/x-Month-2/1625640972091637769_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625640972091637769_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625640972091637769_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1625640972091637769_3.jpg' width='450' height='500'><br><br>北京时间2023-02-15T06:17:48Z<br>网友投稿
+西安一楼盘烂尾10年，业主住毛坯房，还需缴纳20余万续建费。 https://t.co/bjHxU5fKXa<br><img src='/temp/video/2023/x-Month-2/k-Day-15/whyyoutouzhele/1625620349197885451_0.jpg' width='450' height='500'><br><br>
