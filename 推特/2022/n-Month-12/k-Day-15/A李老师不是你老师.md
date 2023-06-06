@@ -1,1 +1,1 @@
-北京时间2022-12-15T00:01:02Z<br>网友补充视频 https://t.co/hPV1C2aP3x<br><img src='/temp/video/2022/n-Month-12/k-Day-15/whyyoutouzhele/1603057484532424704_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-15T00:03:29Z<br>现场被损坏的车辆 https://t.co/OR9O8KMBXu<br><img src='/temp/image/2022/n-Month-12/1603058101699350528_0.jpg' width='450' height='500'><br><br>
