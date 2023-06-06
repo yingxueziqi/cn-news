@@ -1,0 +1,2 @@
+北京时间2022-11-29T04:32:23Z<br>广州沥滘牌坊 28日晚11点左右
+民众要求解封，掀翻了核酸亭 https://t.co/yfiLCtBUvM<br><img src='/temp/video/2022/o-Month-11/av-Day-29/whyyoutouzhele/1597327565844545536_0.jpg' width='450' height='500'><br><br>
