@@ -1,1 +1,1 @@
-北京时间2022-11-19T03:59:51Z<br>李老师，保定某高校因为隔壁学校有个阳性，凌晨三点让现实卷铺盖拉走隔离，md好痛苦啊，这个世界还有救吗 https://t.co/0v5Egb925f<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593695499403534336_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T01:43:57Z<br>https://t.co/aomFImcnEX<br><img src='/temp/image/2022/o-Month-11/1593661300214833152_0.jpg' width='450' height='500'><br><br>
