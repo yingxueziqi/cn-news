@@ -1,0 +1,3 @@
+北京时间2023-02-12T00:36:58Z<br>网友投稿
+中国媒体报道OpenAI雇佣肯尼亚员工时薪不到2美元
+结果评论区大翻车 https://t.co/9SykbibOBu<br><img src='/temp/image/2023/x-Month-2/1624447412759666688_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624447412759666688_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624447412759666688_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624447412759666688_3.jpg' width='450' height='500'><br><br>
