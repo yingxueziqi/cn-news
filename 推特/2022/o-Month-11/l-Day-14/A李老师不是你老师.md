@@ -1,1 +1,3 @@
-北京时间2022-11-14T23:05:49Z<br>郑州大学解封之后（虚假解封，只允许去食堂买饭，超市快递其他什么都没开门）限制时间限制人数限制地点买饭，于是就出现了下图中如同宗教仪式般的画面，学生们排队三个小时才能到窗口 https://t.co/CgHJSXSiUL<br><img src='/temp/image/2022/o-Month-11/1592171954500694017_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-14T21:28:38Z<br>重庆某小区喊楼 https://t.co/Xeu6k3uJOE<br><img src='/temp/video/2022/o-Month-11/l-Day-14/whyyoutouzhele/1592147495165231106_0.jpg' width='450' height='500'><br><br>北京时间2022-11-14T19:22:39Z<br>中国防疫正在进入最混乱的阶段
+石家庄人因为不用做核酸而哀嚎
+而重庆人因为不愿做核酸而被拧断胳膊。<br><br><br>北京时间2022-11-14T20:44:50Z<br>https://t.co/TOCQMVgeLS<br><img src='/temp/image/2022/o-Month-11/1592136472295272448_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592136472295272448_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592136472295272448_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592136472295272448_3.jpg' width='450' height='500'><br><br>
