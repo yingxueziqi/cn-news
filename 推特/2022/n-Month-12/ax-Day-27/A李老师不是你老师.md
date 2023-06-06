@@ -1,1 +1,2 @@
-北京时间2022-12-27T06:22:42Z<br>https://t.co/xeG0c2pSJx<br><img src='/temp/image/2022/n-Month-12/1607502189403979776_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-27T06:28:44Z<br>网友投稿 河南
+在全面放开之后，郑州大学和河南轻工业学院昨天相继发文，将使用校园通行码继续闭环式管理 https://t.co/YiqihXUtyN<br><img src='/temp/image/2022/n-Month-12/1607503706333007873_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607503706333007873_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607503706333007873_2.jpg' width='450' height='500'><br><br>北京时间2022-12-27T05:22:13Z<br>？？？ https://t.co/blISU1AmBI<br><img src='/temp/image/2022/n-Month-12/1607486969604341760_0.jpg' width='450' height='500'><br><br>
