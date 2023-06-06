@@ -1,1 +1,3 @@
-北京时间2022-12-02T23:20:12Z<br>《南华早报》消息：据欧盟高级官员称，周四在北京举行的三个小时的会议上，中国国家主席习近平告诉欧洲理事会主席查尔斯·米歇尔，抗议该国严格的 Covid-19 措施的人“主要是学生”，他们在经历了三年的疫情之后感到“沮丧”。 https://t.co/aJ9UwnMfDP<br><img src='/temp/image/2022/n-Month-12/1598698555140513793_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T20:39:51Z<br>此刻 东京池袋地铁站 ，民众举行悼念活动
+现场没有口号，非常安静。 https://t.co/p01Wl2TTEI<br><img src='/temp/image/2022/n-Month-12/1598658200089288704_0.jpg' width='450' height='500'><br><br>北京时间2022-12-02T23:37:24Z<br>此刻 北京 亮马桥附近
+道路上依然每隔50米一辆警车。 https://t.co/ZIUZ9UucQF<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598702883771482114_0.jpg' width='450' height='500'><br><br>
