@@ -1,2 +1,1 @@
-北京时间2022-12-13T22:04:54Z<br>网友投稿称
-目前北京患者买不到药的主要原因是民众恐慌性的囤货导致 https://t.co/KDDCcE9rnl<br><img src='/temp/image/2022/n-Month-12/1602665873008885761_0.jpg' width='450' height='500'><br><br>北京时间2022-12-13T16:37:08Z<br>养老院员工投稿 https://t.co/pe4KJnM1DZ<br><img src='/temp/image/2022/n-Month-12/1602583384970100738_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T18:14:01Z<br>网友投稿 山西太原某医院发布的关于进一步规范新冠肺炎相关死亡病例诊断等工作的通知 https://t.co/6g8KaoAdT6<br><img src='/temp/image/2022/n-Month-12/1602607767189131265_0.jpg' width='450' height='500'><br><br>
