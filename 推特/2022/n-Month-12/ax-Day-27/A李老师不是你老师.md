@@ -1,2 +1,1 @@
-北京时间2022-12-27T05:36:50Z<br>网友投稿
-辽宁鞍山，12月26日晚。 https://t.co/EajMsSkW80<br><img src='/temp/video/2022/n-Month-12/ax-Day-27/whyyoutouzhele/1607490645840760832_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-27T06:22:42Z<br>https://t.co/xeG0c2pSJx<br><img src='/temp/image/2022/n-Month-12/1607502189403979776_0.jpg' width='450' height='500'><br><br>
