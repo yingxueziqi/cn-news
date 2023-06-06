@@ -1,2 +1,1 @@
-北京时间2023-01-03T04:58:25Z<br>在警车被掀翻后，民众纷纷上前与警车自拍合影 https://t.co/9YVHqHlFQb<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1610017693561913344_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T02:35:21Z<br>网友补充后续 
-视频显示，特警消防进场，随后将两名青年逮捕。 https://t.co/flQj9bKeON<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609981688540528644_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-03T01:24:17Z<br>网友补充 https://t.co/BQrnB9SV8z<br><img src='/temp/image/2023/y-Month-1/1609963803592085504_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1609963803592085504_1.jpg' width='450' height='500'><br><br>
