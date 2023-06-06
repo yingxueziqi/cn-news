@@ -1,1 +1,1 @@
-北京时间2023-01-06T02:34:06Z<br>@Hahaha38035264 https://t.co/uhM9IdUAai<br><img src='/temp/image/2023/y-Month-1/1611068536885022750_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-06T04:27:55Z<br>@IiB2ne 感谢补充<br><br><br>北京时间2023-01-06T01:27:05Z<br>@robotWhiteSand 没有说因为李志所以把路牌拆了，只是顺便说一下这个路牌的历史<br><br><br>
