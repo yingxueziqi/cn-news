@@ -1,1 +1,2 @@
-北京时间2022-12-20T21:52:21Z<br>https://t.co/cZ5qkzWpIK<br><img src='/temp/image/2022/n-Month-12/1605199428154957824_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1605199428154957824_1.jpg' width='450' height='500'><br><br>北京时间2022-12-20T19:51:32Z<br>乌鲁木齐市血液中心发布倡议，号召新冠康复者献血 https://t.co/MhZBx7RFFH<br><img src='/temp/image/2022/n-Month-12/1605169021674213376_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-20T22:56:07Z<br>再说一遍，我9月就已经预见这样直接躺平式的放开会发生什么样的后果，我觉得我这种水平都能想明白的事情，中南海不可能想不明白。
+但是这三年为了恢复做了什么？或者哪怕从上海的四月开始面对高传染性的奥米克戎又做了什么？是什么导致最终还是选择了直接躺平？只能说国家确实有高人吧。 https://t.co/xkS1K7YAYS<br><img src='/temp/image/2022/n-Month-12/1605215477558566915_0.jpg' width='450' height='500'><br><br>
