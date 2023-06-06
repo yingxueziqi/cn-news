@@ -1,3 +1,3 @@
-北京时间2023-01-25T03:51:10Z<br>近日，针对一本国内著名小说《围棋少女》的声讨愈演愈烈，网友指责该小说存在严重的辱华及美化侵华战争情节。
-据悉，这本小说曾被翻译成多国文字，并获法国龚古尔中学生奖，被时任法国总统希拉克推荐给了时任中国国家副主席胡锦涛。 https://t.co/aH6G6cpQKn<br><img src='/temp/image/2023/y-Month-1/1617973300990443526_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1617973300990443526_1.jpg' width='450' height='500'><br><br>北京时间2023-01-25T03:46:06Z<br>后续：相关部门已删除了开展核酸检测的信息 https://t.co/MtFmNBVo3Y<br><img src='/temp/image/2023/y-Month-1/1617972026970624000_0.jpg' width='450' height='500'><br><br>北京时间2023-01-25T05:52:48Z<br>请记得目前尚有一些年轻人正在被关押
-https://t.co/a3A6vXJkXo<br><br><br>
+北京时间2023-01-25T20:09:55Z<br>不好意思，向大家道歉，雷军的视频来自一年前
+审稿不严，现已删除，以后注意 https://t.co/vIHH3rRm2y<br><img src='/temp/image/2023/y-Month-1/1618219611757121536_0.jpg' width='450' height='500'><br><br>北京时间2023-01-25T19:48:08Z<br>微博上看到一条：
+上个月还在和躺匪不共戴天的人，这个月已经在人满为患的电影院里三刷流浪地球2了<br><br><br>北京时间2023-01-25T22:24:58Z<br>@dbezuqun 这段儿还真不是虚构的，而是现实中发生在日本福岛核泄漏时的一幕 https://t.co/H5qF8Igmgu<br><img src='/temp/image/2023/y-Month-1/1618253599783653377_0.jpg' width='450' height='500'><br><br>
