@@ -1,3 +1,1 @@
-北京时间2023-02-19T04:23:07Z<br>《地下城与勇士》再次迎来重大和谐2.0
-替换了包括HP,MP等在内的所有英文缩写
-修改了包含“血”“杀”“斩”“致命”“复仇”等一系列汉字描述 https://t.co/m7HSaBLtJB<br><img src='/temp/image/2023/x-Month-2/1627041037943291904_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627041037943291904_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627041037943291904_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627041037943291904_3.jpg' width='450' height='500'><br><br>
+北京时间2023-02-19T05:38:05Z<br>你法我笑LIVE版<br><br><br>
