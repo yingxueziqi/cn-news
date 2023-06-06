@@ -1,2 +1,2 @@
-北京时间2022-12-13T21:28:09Z<br>网友投稿
-目前的情况下，放开反而“害了”我们 https://t.co/lAzscD6inK<br><img src='/temp/image/2022/n-Month-12/1602656624522530816_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602656624522530816_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T22:04:54Z<br>网友投稿称
+目前北京患者买不到药的主要原因是民众恐慌性的囤货导致 https://t.co/KDDCcE9rnl<br><img src='/temp/image/2022/n-Month-12/1602665873008885761_0.jpg' width='450' height='500'><br><br>北京时间2022-12-13T16:37:08Z<br>养老院员工投稿 https://t.co/pe4KJnM1DZ<br><img src='/temp/image/2022/n-Month-12/1602583384970100738_0.jpg' width='450' height='500'><br><br>
