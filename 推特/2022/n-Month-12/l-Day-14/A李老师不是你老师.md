@@ -1,3 +1,1 @@
-北京时间2022-12-14T00:57:25Z<br>在境内的社交媒体上其实是没有讨论必要的
-因为很明显，人们可以列举各种国外放开之后的惨状来印证放开的错误以及接下来将面临的问题
-但是如果你想要列举那些封城时期跳楼的人，饿死的人，无法就医的人的遭遇时，你的号就炸了。 https://t.co/7ugQMYLNsZ<br><img src='/temp/image/2022/n-Month-12/1602709287800901634_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_3.jpg' width='450' height='500'><br><br>
+北京时间2022-12-14T06:34:24Z<br>网友补充 https://t.co/W3kO9ZHB6r<br><img src='/temp/image/2022/n-Month-12/1602794092685033472_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602794092685033472_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602794092685033472_2.jpg' width='450' height='500'><br><br>
