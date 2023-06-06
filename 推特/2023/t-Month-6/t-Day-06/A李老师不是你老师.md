@@ -1,4 +1,7 @@
-北京时间2023-06-06T20:18:52Z<br>后续：央视出面为涉事学校站台
+北京时间2023-06-06T21:33:39Z<br>网友补充 https://t.co/hmv26bgdHe<br><img src='/temp/image/2023/t-Month-6/1666075882946203654_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T21:26:08Z<br>https://t.co/RlgOCi2Jio<br><br><br>北京时间2023-06-06T21:25:51Z<br>网友投稿
+针对隔空投送的实名制和审查来了
+6月6日，网信办就《近距离自组网信息服务管理规定（征求意见稿）》公开征求意见
+其中要求：使用者需提供真实身份信息，不得自动配对，不得默认提供快照、缩略图等概要信息预览功能，需要设置便捷投诉举报入口或提供投诉举报渠道等。 https://t.co/HsKcLIp66l<br><img src='/temp/image/2023/t-Month-6/1666073921194717184_0.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666073921194717184_1.jpg' width='450' height='500'><img src='/temp/image/2023/t-Month-6/1666073921194717184_2.jpg' width='450' height='500'><br><br>北京时间2023-06-06T20:18:52Z<br>后续：央视出面为涉事学校站台
 称“异物”为鸭脖，是正常食物。 https://t.co/G5qeONr4us<br><img src='/temp/image/2023/t-Month-6/1666057062143459329_0.jpg' width='450' height='500'><br><br>北京时间2023-06-06T20:11:34Z<br>前情提要
 https://t.co/YngTasfd6n<br><br><br>北京时间2023-06-06T20:11:13Z<br>网友投稿
 “指鼠为鸭”事件在网上继续发酵
