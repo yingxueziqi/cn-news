@@ -1,3 +1,1 @@
-北京时间2022-11-08T02:18:58Z<br>近日山西一卡车司机运货到某地，因为上厕所而无奈下车，被要求隔离七天
-司机情绪崩溃…普通百姓为生计太难了！
-所以我说我有时候真的觉得现在的情况不是百姓有病，而是防疫的人都疯了 https://t.co/v1ofFSRTgF<br><img src='/temp/video/2022/o-Month-11/r-Day-08/whyyoutouzhele/1589683844793630721_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-08T07:10:55Z<br>疫情期间如何遛狗 https://t.co/Z2Vro5YYOi<br><img src='/temp/video/2022/o-Month-11/r-Day-08/whyyoutouzhele/1589757316458373123_0.jpg' width='450' height='500'><br><br>
