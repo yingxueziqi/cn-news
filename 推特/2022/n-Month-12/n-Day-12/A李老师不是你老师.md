@@ -1,0 +1,4 @@
+北京时间2022-12-12T22:46:19Z<br>今晚 徐州医科大学 专硕研究生聚集抗议 https://t.co/USBZj2yENw<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602313904750825472_0.jpg' width='450' height='500'><br><br>北京时间2022-12-12T22:36:37Z<br>今晚 南昌大学江西医学院
+专硕生聚集抗议，要求同工同酬。
+据悉，和之前的各大医学院一样，同学们每个月斤1000的微薄规培收入和繁重的临床事务让他们不堪重负。
+约一个小时前，学校大门已锁，门口有警车，校内依旧在抗议。 https://t.co/CyTknelR9g<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602311463644938241_0.jpg' width='450' height='500'><br><br>北京时间2022-12-12T23:25:15Z<br>今晚 福州大学 因为针对返乡的方案朝令夕改。导致今晚学生聚集在三区操场抗议 https://t.co/cPRG77R63V<br><img src='/temp/video/2022/n-Month-12/n-Day-12/whyyoutouzhele/1602323702783348737_0.jpg' width='450' height='500'><br><br>
