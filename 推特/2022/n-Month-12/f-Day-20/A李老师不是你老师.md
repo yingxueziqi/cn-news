@@ -1,1 +1,3 @@
-北京时间2022-12-20T07:44:31Z<br>似乎这些天没有出现类似20年初那种世界各地的华侨往国内大量援助物资的新闻了<br><br><br>
+北京时间2022-12-20T00:03:32Z<br>网友投稿 约半小时前
+自己刚才想搜索一些世界杯资料，却发现一些和足球相关的词条页面被不相干内容破坏
+目前相关词条已经恢复并已开启半保护状态 https://t.co/7VV3nZBOxL<br><img src='/temp/image/2022/n-Month-12/1604870052922109955_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604870052922109955_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604870052922109955_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604870052922109955_3.jpg' width='450' height='500'><br><br>
