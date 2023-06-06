@@ -1,1 +1,4 @@
-北京时间2022-12-25T03:59:07Z<br>@coreych84743185 以及这是他之前的投稿 https://t.co/O8uZ2A2p8w<br><img src='/temp/image/2022/n-Month-12/1606741281195147271_0.jpg' width='450' height='500'><br><br>北京时间2022-12-25T03:22:20Z<br>@coreych84743185 不论你期待什么，就我而言，人们恢复正常的生活，我很开心<br><br><br>北京时间2022-12-25T03:57:41Z<br>@coreych84743185 https://t.co/iRiwOMpWxi<br><img src='/temp/image/2022/n-Month-12/1606740917456625670_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-25T20:16:35Z<br>各地恢复正常生活的投稿汇总
+
+我其实挺纳闷的，国内爱国大V们每天各种发殡仪馆停尸房放开的惨状并以此为借口抹黑白纸运动，我发点民众恢复正常生活的视频结果反而变成大外宣了
+“不要核酸要自由”说的不就是视频里的场景吗？ https://t.co/FaMPUaduFI<br><img src='/temp/video/2022/n-Month-12/az-Day-25/whyyoutouzhele/1606987268325281792_0.jpg' width='450' height='500'><br><br>
