@@ -1,2 +1,1 @@
-北京时间2023-03-26T01:21:17Z<br>网友投稿
-罗玉凤在自己的Youtube账号上发表声明：本人没有推特账号，所有推特账号及推特言论均为假冒。 https://t.co/JiJpJ1eRi4<br><img src='/temp/video/2023/w-Month-3/ay-Day-26/whyyoutouzhele/1639678855567798277_0.jpg' width='450' height='500'><br><br>
+北京时间2023-03-26T01:21:22Z<br>https://t.co/0hqTPQfZcU<br><br><br>
