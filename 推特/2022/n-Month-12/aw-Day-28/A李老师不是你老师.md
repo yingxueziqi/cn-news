@@ -1,3 +1,7 @@
-北京时间2022-12-28T20:52:14Z<br>网友投稿 西安殡仪馆 https://t.co/tpLbF7bK6E<br><img src='/temp/image/2022/n-Month-12/1608083402976071683_0.jpg' width='450' height='500'><br><br>北京时间2022-12-28T18:04:17Z<br>网友投稿
-人民日报：十二句话记住2022
-评论区： https://t.co/kB4OpvTX4Y<br><img src='/temp/image/2022/n-Month-12/1608041138086203394_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608041138086203394_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-28T18:01:43Z<br>网友投稿
+重庆江南殡仪馆车辆排队 https://t.co/jXkOQWPCab<br><img src='/temp/video/2022/n-Month-12/aw-Day-28/whyyoutouzhele/1608040491437948930_0.jpg' width='450' height='500'><br><br>北京时间2022-12-28T16:54:12Z<br>网友投稿 今天早上八点左右
+郑州黄河大桥，因大雾造成数百辆汽车连环追尾 https://t.co/S2z5jcgzmv<br><img src='/temp/video/2022/n-Month-12/aw-Day-28/whyyoutouzhele/1608023498420801536_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608023498420801536_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608023498420801536_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608023498420801536_2.jpg' width='450' height='500'><br><br>北京时间2022-12-28T18:00:24Z<br>22年12月27日 中超联赛 武汉三镇VS浙江绿城 武汉沌口体育中心现场。 https://t.co/jmT77memzu<br><img src='/temp/video/2022/n-Month-12/aw-Day-28/whyyoutouzhele/1608040159085305856_0.jpg' width='450' height='500'><br><br>北京时间2022-12-28T18:40:46Z<br>网友投稿
+大连理工大学在学生放假离校后，校保卫处发通知要清理掉校内所有的电动车，由企业以几百元的价格低价回收学生几千块购买的电动自行车，之后校内通勤只能使用高价的校内共享电动车。
+据称单次骑行价格为2元每次，月卡现在由9.9元直接涨价至29.9元，并且月卡的次数也难以满足日常通勤 https://t.co/IaJ15y9rXD<br><img src='/temp/image/2022/n-Month-12/1608050318536806405_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608050318536806405_1.jpg' width='450' height='500'><br><br>北京时间2022-12-28T17:18:49Z<br>网友投稿
+核酸检测员：月薪从10万降低到3万
+（这是核酸检测员，不是小区里负责采样的大白） https://t.co/HtGE0C1J1k<br><img src='/temp/image/2022/n-Month-12/1608029692837220352_0.jpg' width='450' height='500'><br><br>北京时间2022-12-28T18:02:03Z<br>另有网友投稿成都的情况 https://t.co/VcxtXPEfZP<br><img src='/temp/image/2022/n-Month-12/1608040573570613249_0.jpg' width='450' height='500'><br><br>
