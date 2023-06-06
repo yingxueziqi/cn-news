@@ -1,1 +1,2 @@
-北京时间2022-11-09T03:56:54Z<br>不知道进去吃饭能不能续一秒 https://t.co/I1pVxnonPN<br><img src='/temp/image/2022/o-Month-11/1590070880063082497_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-09T07:59:33Z<br>许昌核酸机构因被政府拖欠回款，宣布罢工 https://t.co/TjmhYu7Hya<br><img src='/temp/image/2022/o-Month-11/1590131942783344642_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T07:01:54Z<br>笑死我了 https://t.co/wZv0xbw2x4<br><img src='/temp/image/2022/o-Month-11/1590117436568653824_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T00:41:25Z<br>网友投稿
+廣州防控已經直接把人拉進监狱里隔離了 https://t.co/ra9rUi5f4S<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590021685457350656_0.jpg' width='450' height='500'><br><br>
