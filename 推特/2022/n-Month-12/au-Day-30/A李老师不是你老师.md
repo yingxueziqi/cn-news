@@ -1,1 +1,1 @@
-北京时间2022-12-30T04:30:10Z<br>https://t.co/udMi5nwQjf<br><img src='/temp/image/2022/n-Month-12/1608561034138357760_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-30T05:35:33Z<br>@FightDisinform4 新华社小编可能忘了，白纸运动的开场口号就是“好好好” https://t.co/G5039icO9v<br><img src='/temp/image/2022/n-Month-12/1608577486077714432_0.jpg' width='450' height='500'><br><br>
