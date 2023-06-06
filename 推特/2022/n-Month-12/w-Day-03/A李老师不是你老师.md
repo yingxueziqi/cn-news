@@ -1,3 +1,2 @@
-北京时间2022-12-03T00:08:07Z<br>上海闵行虹桥镇万源新城 
-因1例密接 12.2日凌晨1:20发通告封小区 
-今天晚上6点开始，民众聚集要求解封 https://t.co/4PCXn0hQS4<br><img src='/temp/video/2022/n-Month-12/w-Day-03/whyyoutouzhele/1598710612711841792_0.jpg' width='450' height='500'><br><br>北京时间2022-12-03T06:21:17Z<br>昨天 新西兰奥克兰也举行了声援国内民众的聚会 https://t.co/MjsyTNF1kb<br><img src='/temp/video/2022/n-Month-12/w-Day-03/whyyoutouzhele/1598804525686861824_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-03T07:55:49Z<br>昨天 伯克利的一名留学生在悼念现场纵火，导致一百多年历史的建筑被损坏。 https://t.co/ECQ9hs21DU<br><img src='/temp/image/2022/n-Month-12/1598828312985407488_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598828312985407488_1.jpg' width='450' height='500'><br><br>北京时间2022-12-03T04:25:15Z<br>网友投稿
+山东 济宁的现状 https://t.co/oezfEa9PCe<br><img src='/temp/image/2022/n-Month-12/1598775323553894406_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598775323553894406_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598775323553894406_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598775323553894406_3.jpg' width='450' height='500'><br><br>
