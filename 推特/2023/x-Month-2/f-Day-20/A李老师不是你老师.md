@@ -1,1 +1,3 @@
-北京时间2023-02-20T00:56:34Z<br>@tpU0qVpqeu3ejGx 感谢更正<br><br><br>
+北京时间2023-02-20T09:22:01Z<br>网友投稿
+23岁的网红“鸡蛋姬”，因其在个人社交媒体上发布的看望自己的爷爷时的照片染着粉红色的头发，而遭到网暴最终抑郁症自杀。
+据悉，出生于1999年的她成绩优异，不久前被保送研究生后，她拿着录取通知书给病床上的84岁爷爷一个惊喜，却遭遇了评论区的恶意网暴 https://t.co/wW0cUByyzW<br><img src='/temp/image/2023/x-Month-2/1627478647606022146_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627478647606022146_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627478647606022146_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1627478647606022146_3.jpg' width='450' height='500'><br><br>
