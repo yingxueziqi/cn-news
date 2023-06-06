@@ -1,0 +1,4 @@
+北京时间2023-03-17T07:05:30Z<br>网友投稿
+近日推特上一件匪夷所思的事情：一位推友的父亲因为脑出血在水滴筹上众筹善款。
+然而只是因为她发了一条推文表达自己的心情的时候忘了在其中加入对总书记的敬语，导致被一名粉红当作反贼并举报，水滴筹被关停，捐款无法取出。 https://t.co/MBSlQxOc7z<br><img src='/temp/image/2023/w-Month-3/1636503987997356038_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636503987997356038_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636503987997356038_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636503987997356038_3.jpg' width='450' height='500'><br><br>北京时间2023-03-17T06:18:23Z<br>网友投稿
+243万存款被银行行长挪用，银行拒赔。称储户存钱后没有经常查询，应自行承担责任😥 https://t.co/2nH5n0Jx51<br><img src='/temp/video/2023/w-Month-3/i-Day-17/whyyoutouzhele/1636492130750279681_0.jpg' width='450' height='500'><br><br>
