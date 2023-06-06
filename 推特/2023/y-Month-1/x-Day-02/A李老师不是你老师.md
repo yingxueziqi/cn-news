@@ -1,2 +1,1 @@
-北京时间2023-01-02T19:37:23Z<br>网友投稿 跨年合集 https://t.co/3MJixWcW0t<br><img src='/temp/video/2023/y-Month-1/x-Day-02/whyyoutouzhele/1609876503306670081_0.jpg' width='450' height='500'><br><br>北京时间2023-01-02T09:09:20Z<br>老胡你… https://t.co/oxXhiQZIK7<br><img src='/temp/image/2023/y-Month-1/1609718451400019969_0.jpg' width='450' height='500'><br><br>北京时间2023-01-02T09:26:30Z<br>网友投稿 郑州 
-几名城管手持灭火器对着一位民众喷射，试图阻止他继续燃放手中的烟花 https://t.co/gmRuQ76jd9<br><img src='/temp/video/2023/y-Month-1/x-Day-02/whyyoutouzhele/1609722769847058433_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-02T20:51:22Z<br>希望大家在燃放烟花时注意安全，有些镜头还挺吓人的 https://t.co/WvQX3F745T<br><img src='/temp/video/2023/y-Month-1/x-Day-02/whyyoutouzhele/1609895125030928387_0.jpg' width='450' height='500'><br><br>
