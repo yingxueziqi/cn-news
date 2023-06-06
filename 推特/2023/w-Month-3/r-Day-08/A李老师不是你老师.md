@@ -1,10 +1,6 @@
-北京时间2023-03-08T21:20:06Z<br>3月7日晚，格鲁吉亚，因为抗议议会通过一项俄罗斯式的反非政府组织法案，导致了大规模的民众抗议。
-视频中警方试图使用高压水枪冲溃一名挥舞欧盟旗帜的女子，但是随后，越来越多的人民聚拢在一起，共同捍卫欧盟旗帜。 
-团结的民众与组成盾牌方阵的警察形成了鲜明的对比https://t.co/ZxcyZRwpwu<br><img src='/temp/video/2023/w-Month-3/r-Day-08/whyyoutouzhele/1633457566482087936_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T21:50:23Z<br>网友投稿
-3月8日，中国美术学院的学生头戴粉色假发悼念此前因粉色头发被网暴致死的鸡蛋姬。 https://t.co/Jaa4G0KPRm<br><img src='/temp/image/2023/w-Month-3/1633465186698006530_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T20:42:58Z<br>网友投稿
-今日微博热搜，南京航空航天大学一教师在课堂上发表不当言论，目前校方已经启动调查程序。
-图2-3，网传该教师言论 https://t.co/ScU3RsQmXV<br><img src='/temp/image/2023/w-Month-3/1633448221598007302_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633448221598007302_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633448221598007302_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633448221598007302_3.jpg' width='450' height='500'><br><br>北京时间2023-03-08T21:06:54Z<br>网友投稿
-西安翻译学院的师生冲突愈演愈烈
-校方在三月七号晚通知宿舍会自由开放，但是没有下发官方文件。
-然而三月八号，宿舍白天依旧拒绝学生进入，导致多起冲突发生。 https://t.co/LvQM3lQJZT<br><img src='/temp/video/2023/w-Month-3/r-Day-08/whyyoutouzhele/1633454244362608648_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T20:51:18Z<br>网友投稿
-北京某高校，已经废弃的核酸检测点 https://t.co/FNxZH66ACA<br><img src='/temp/image/2023/w-Month-3/1633450319718805506_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633450319718805506_1.jpg' width='450' height='500'><br><br>
+北京时间2023-03-08T21:34:08Z<br>网友投稿
+3月8日，陕西西安发布《流感大流行应急预案》 https://t.co/VHzsTd3uce<br><img src='/temp/image/2023/w-Month-3/1633461096026877955_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T20:58:14Z<br>网友投稿 https://t.co/NFgrk6ihqD<br><img src='/temp/image/2023/w-Month-3/1633452061965557761_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633452061965557761_1.jpg' width='450' height='500'><br><br>北京时间2023-03-08T20:44:10Z<br>网传学生记录的该教师言论 https://t.co/M0gzwFosLL<br><img src='/temp/image/2023/w-Month-3/1633448521993953280_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633448521993953280_1.jpg' width='450' height='500'><br><br>北京时间2023-03-08T20:45:32Z<br>网友投稿
+3月7日，江苏常州一家工厂发生火灾，人们站在桥上近距离围观。 https://t.co/vdTZIRCUkK<br><img src='/temp/video/2023/w-Month-3/r-Day-08/whyyoutouzhele/1633448865620803584_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T22:52:00Z<br>网友投稿
+国务院信访局调整为国务院直属机构。 https://t.co/hIGKgbcsk9<br><img src='/temp/image/2023/w-Month-3/1633480692096016385_0.jpg' width='450' height='500'><br><br>北京时间2023-03-08T21:30:23Z<br>最新消息
+经过精心裁剪后，这个视频被重新上架
+但是评论区依旧翻车 https://t.co/eAogvBWM4S<br><img src='/temp/image/2023/w-Month-3/1633460153742938112_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633460153742938112_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1633460153742938112_2.jpg' width='450' height='500'><br><br>
