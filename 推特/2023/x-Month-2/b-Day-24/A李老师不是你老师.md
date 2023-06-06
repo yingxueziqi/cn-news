@@ -1,2 +1,4 @@
-北京时间2023-02-24T03:17:19Z<br>齐鲁理工学院学生投稿
-新学期学校依然奉行“非必要不外出"的封校管理方式 https://t.co/POj7pYESNE<br><img src='/temp/image/2023/x-Month-2/1628836419215978500_0.jpg' width='450' height='500'><br><br>
+北京时间2023-02-24T06:32:01Z<br>网友投稿
+有家长表示，2月18日晚，各地学校老师组织观看《开学第一课》，由各地老师下发给家长群，仅初中家长就有近10万人观看 。
+但令他惊讶的是，观看实际过程中却在不断推销志道优学的课程，令他非常不解。 https://t.co/Y7LQqPSjTv<br><img src='/temp/image/2023/x-Month-2/1628885416563572736_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628885416563572736_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628885416563572736_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628885416563572736_3.jpg' width='450' height='500'><br><br>北京时间2023-02-24T03:15:28Z<br>我突然反应过来这几个哥们有点狂啊
+这大后天就开两会了，在北京怎么还能有这么几个拥有全副武装的仿真枪的哥们接受外媒采访啊 https://t.co/D539J3UQhQ<br><img src='/temp/image/2023/x-Month-2/1628835954524815360_0.jpg' width='450' height='500'><br><br>
