@@ -1,0 +1,2 @@
+北京时间2023-03-05T07:46:14Z<br>不再策应？
+有网友发现，近日央视旗下的短视频账号发布了一系列唱衰俄军的视频，甚至用“猎杀俄军”这种具有偏向性的动词，不知意图为何。 https://t.co/HAiZfdMiJH<br><img src='/temp/image/2023/w-Month-3/1632165583906119685_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1632165583906119685_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1632165583906119685_2.jpg' width='450' height='500'><br><br>
