@@ -1,0 +1,1 @@
+北京时间2023-01-05T05:21:55Z<br>法新社消息称，三分之一的中国旅客核酸检测呈阳性。 https://t.co/RqPeUFaVPL<br><img src='/temp/image/2023/y-Month-1/1610748382384881664_0.jpg' width='450' height='500'><br><br>
