@@ -1,1 +1,4 @@
-北京时间2023-01-29T03:12:00Z<br>@porcorossin 懂了<br><br><br>
+北京时间2023-01-29T17:32:35Z<br>江西上饶，失踪一百余天的十五岁高一男生胡鑫宇的尸体被发现自缢于此前搜索过的山上。
+2022年10月，胡鑫宇失踪，引发社会高度关注。
+目前家属决定尸检，其母亲发文称不会停止寻找真相。 https://t.co/KYufgCIGKn<br><img src='/temp/image/2023/y-Month-1/1619629570495496192_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619629570495496192_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619629570495496192_2.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619629570495496192_3.jpg' width='450' height='500'><br><br>北京时间2023-01-29T21:42:27Z<br>目前网上流传的胡鑫宇缢亡现场照片系嫁接
+原图为2017年的淮安一男子自杀新闻 https://t.co/PzfzI97s13<br><img src='/temp/image/2023/y-Month-1/1619692452629315586_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619692452629315586_1.jpg' width='450' height='500'><br><br>
