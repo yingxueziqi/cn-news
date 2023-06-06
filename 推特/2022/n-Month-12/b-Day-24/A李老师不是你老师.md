@@ -1,4 +1,1 @@
-北京时间2022-12-24T23:45:08Z<br>网友投稿
-目前四川正在使用一种类似健康码的叫做平安电子身份凭证码
-今天有公安在小区门口拦着人扫码进行办理给人一种发放良民证的感觉
-根据功能看或许这个良民证会和小区出入登记挂钩关联门禁让民警随时知道是否在家 https://t.co/HXkSM7qqqB<br><img src='/temp/image/2022/n-Month-12/1606677363848257541_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606677363848257541_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-24T19:58:25Z<br>网友投稿，今天考研的一些情况 https://t.co/sBt780GN4k<br><img src='/temp/image/2022/n-Month-12/1606620305333669889_0.jpg' width='450' height='500'><br><br>北京时间2022-12-24T18:59:42Z<br>在微博上，有多名网友发文展示“新冠白肺” https://t.co/VFvj0akgSy<br><img src='/temp/image/2022/n-Month-12/1606605531677970432_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606605531677970432_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606605531677970432_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606605531677970432_3.jpg' width='450' height='500'><br><br>
