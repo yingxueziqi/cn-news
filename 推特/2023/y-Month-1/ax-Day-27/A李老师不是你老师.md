@@ -1,0 +1,2 @@
+北京时间2023-01-27T01:56:29Z<br>网友投稿
+微信里看到一名网友去雄安逛了一圈，这是雄安目前的情况: https://t.co/cjHsSGFwxa<br><img src='/temp/image/2023/y-Month-1/1618669217410322433_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1618669217410322433_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1618669217410322433_2.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1618669217410322433_3.jpg' width='450' height='500'><br><br>
