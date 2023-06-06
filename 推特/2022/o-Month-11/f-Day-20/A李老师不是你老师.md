@@ -1,1 +1,1 @@
-北京时间2022-11-20T01:05:48Z<br>河北师范大学：为了隔离（还是为了充分群体免疫）要求全校学生集体随机换宿舍隔离七天，甚至有男女混住 https://t.co/IewdsiGY63<br><img src='/temp/image/2022/o-Month-11/1594014087293259778_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594014087293259778_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-20T01:11:07Z<br>https://t.co/IeyPZ6DMkX<br><img src='/temp/image/2022/o-Month-11/1594015427058802688_0.jpg' width='450' height='500'><br><br>
