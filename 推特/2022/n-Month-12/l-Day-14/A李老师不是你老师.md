@@ -1,5 +1,3 @@
-北京时间2022-12-14T01:47:49Z<br>网友投稿
-13日晚，徐州徐医附院规培生抗议
-据悉，徐医附院的规培生不被科室发放应有的防护措施，医院各科室不予发放N95/KN95口罩，并要求他们必须在岗
-在前一天的抗议中，医院只允许研究生放假，而并没有允许规培生放假。
-导致今天规培生们继续抗议。 https://t.co/UXwkDghEN6<br><img src='/temp/video/2022/n-Month-12/l-Day-14/whyyoutouzhele/1602721969740324865_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-14T00:57:25Z<br>在境内的社交媒体上其实是没有讨论必要的
+因为很明显，人们可以列举各种国外放开之后的惨状来印证放开的错误以及接下来将面临的问题
+但是如果你想要列举那些封城时期跳楼的人，饿死的人，无法就医的人的遭遇时，你的号就炸了。 https://t.co/7ugQMYLNsZ<br><img src='/temp/image/2022/n-Month-12/1602709287800901634_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1602709287800901634_3.jpg' width='450' height='500'><br><br>
