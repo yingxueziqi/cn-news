@@ -1,1 +1,3 @@
-北京时间2022-12-13T00:24:30Z<br>最新消息，学校通过放假成功瓦解了学生们13日的行动计划。 https://t.co/rEVP0KBVeu<br><img src='/temp/image/2022/n-Month-12/1602338613949349892_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-13T21:36:19Z<br>今晚，安徽医科大学的研究生聚集在校门口抗议，据悉现在警察还有校领导已经去了，让导师认人领回去 https://t.co/MOo3ya3jN0<br><img src='/temp/image/2022/n-Month-12/1602658677722386438_0.jpg' width='450' height='500'><br><br>北京时间2022-12-13T16:34:54Z<br>昨天（12月12日晚），昆明医科大学第一附属医院门诊北楼有学生（大多数是专硕）进行抗议，要求同工同酬和离校返乡
+现场发生了冲突，几名老师控制一名研究生并抢夺他的手机。
+截止目前事情仍未解决，学校和医院没有给出答复 https://t.co/uGESRs6ouK<br><img src='/temp/video/2022/n-Month-12/m-Day-13/whyyoutouzhele/1602582823277584385_0.jpg' width='450' height='500'><br><br>
