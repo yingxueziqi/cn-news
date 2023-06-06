@@ -1,2 +1,1 @@
-北京时间2022-12-01T19:35:12Z<br>北京市通州区马驹桥镇连日来持续不断发生居民要求解封的事件
-视频1 12.1日 晚  19.10分，马驹桥镇北门口村开始撬门了。 https://t.co/MuX3H9AHlU<br><img src='/temp/video/2022/n-Month-12/y-Day-01/whyyoutouzhele/1598279542946381825_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-01T20:39:25Z<br>吉林省白城师范学院校内建了一个方舱 https://t.co/YTW21pHYpL<br><img src='/temp/image/2022/n-Month-12/1598295703360798721_0.jpg' width='450' height='500'><br><br>
