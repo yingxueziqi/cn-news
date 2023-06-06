@@ -1,2 +1,2 @@
-北京时间2023-01-08T23:57:29Z<br>网友投稿
-目前央视春晚准备了两个方案。 https://t.co/dT9q3CFjdE<br><img src='/temp/image/2023/y-Month-1/1612116289656422400_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-08T08:58:37Z<br>网友投稿，B站搜索关于重庆大渡口的内容，发现正在被乱码账号洗版 https://t.co/4JflINIgNm<br><img src='/temp/image/2023/y-Month-1/1611890080733450242_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1611890080733450242_1.jpg' width='450' height='500'><br><br>北京时间2023-01-08T23:00:26Z<br>近日 国内著名的校园论坛 北京大学“北大树洞”被北大团委下属机构青年研究中心正式接管，原学生开发者团队全部退出管理层。
+据悉，北大树洞是一个匿名的信息发送平台，最初完全由学生开发并管理。绝大多数同学都会在树洞中获取并发布信息（粗估每天2000+条），其匿名性和学生管理一直是大家所信任的原因 https://t.co/dkLFmPqcXh<br><img src='/temp/image/2023/y-Month-1/1612101932352475138_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612101932352475138_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612101932352475138_2.jpg' width='450' height='500'><br><br>
