@@ -1,1 +1,3 @@
-北京时间2022-11-12T01:38:00Z<br>笑死我了 https://t.co/d7oczdk9Iv<br><img src='/temp/image/2022/o-Month-11/1591123087659274240_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591123087659274240_1.jpg' width='450' height='500'><br><br>北京时间2022-11-12T00:58:47Z<br>广州海珠区西窖 https://t.co/HCCQXrU1Lb<br><img src='/temp/video/2022/o-Month-11/n-Day-12/whyyoutouzhele/1591113219023974406_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-12T02:12:48Z<br>为什么说清狗都是一帮根本就不关心他人的死活呢？这就是两个很好的例子
+图1：我要是感染了新冠我就要去大街上感染别人
+图2：宁愿提前打台湾也不应该躺平 https://t.co/KCviZxPXik<br><img src='/temp/image/2022/o-Month-11/1591131847769169920_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591131847769169920_1.jpg' width='450' height='500'><br><br>
