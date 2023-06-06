@@ -1,2 +1,4 @@
-北京时间2022-12-24T03:02:15Z<br>网友投稿
-有小红书网友称，自己从美国给家里寄的药被退回了 https://t.co/Hvq1o46Qal<br><img src='/temp/image/2022/n-Month-12/1606364580015325184_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-24T03:40:25Z<br>https://t.co/TNtOTU21A7<br><img src='/temp/video/2022/n-Month-12/b-Day-24/whyyoutouzhele/1606374185181274112_0.jpg' width='450' height='500'><br><br>北京时间2022-12-24T07:15:37Z<br>网友投稿
+今天是考研第一天，中央民族大学考研点，官网通知第一场考试6:45前到达学校。我是6:30到的，已经有很多同学了。开始我们在楼里等，后来被保安轰出来排队。保安称没有收到6点45进考场的通知，八点再开楼。
+现在在寒风中，有的同学用手机手电筒灯光复习，队伍中不乏有咳嗽声。 https://t.co/drF8oZl5QR<br><img src='/temp/image/2022/n-Month-12/1606428342613319681_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606428342613319681_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606428342613319681_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606428342613319681_3.jpg' width='450' height='500'><br><br>北京时间2022-12-24T03:24:42Z<br>网友投稿
+目前微博热搜，可能是内地官方首次公布感染进程 https://t.co/Su0gVvA9YC<br><img src='/temp/image/2022/n-Month-12/1606370232368496651_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606370232368496651_1.jpg' width='450' height='500'><br><br>
