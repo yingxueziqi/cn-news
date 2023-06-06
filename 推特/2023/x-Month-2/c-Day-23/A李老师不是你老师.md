@@ -1,7 +1,3 @@
-北京时间2023-02-23T22:28:47Z<br>网友投稿
-北京爱国俱乐部青年近卫军成员通过COSPLAY表达对俄罗斯军队的支持。 https://t.co/2ifz6NmaiJ<br><img src='/temp/image/2023/x-Month-2/1628763809568505857_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628763809568505857_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628763809568505857_2.jpg' width='450' height='500'><br><br>北京时间2023-02-23T22:19:59Z<br>网友投稿
-近日北京街头出现“首都卫士”，骑车共享单车，到指定地点照相，证明自己在工作。
-照完就交差了，骑车就走了 https://t.co/iM891Qo6CQ<br><img src='/temp/video/2023/x-Month-2/c-Day-23/whyyoutouzhele/1628761593742864385_0.jpg' width='450' height='500'><br><br>北京时间2023-02-23T10:52:52Z<br>网友投稿
-商丘公交公司宣布
-因亏顺严重，经营异常困难，决定于3月1日起暂停运营市区公交线路。 https://t.co/v4mBXchcP6<br><img src='/temp/image/2023/x-Month-2/1628588675519897601_0.jpg' width='450' height='500'><br><br>北京时间2023-02-23T23:09:51Z<br>网友投稿
-一名玩家在Steam平台的GTA5评论区为Steam和中国玩家发声，引发了众多网友的共鸣。 https://t.co/nQUtMv8csf<br><img src='/temp/image/2023/x-Month-2/1628774144098566146_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628774144098566146_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628774144098566146_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628774144098566146_3.jpg' width='450' height='500'><br><br>
+北京时间2023-02-23T21:46:12Z<br>老胡中肯？
+网友发现，胡锡进今天发布了一条微博，里面有很多批评普京的言论，包括“普京太鲁莽了”“输了舆论战”“胸肌发达而且很有口才”“事实证明他对国家的治理相当不成功”“俄罗斯经济和国际地位都处于下坡路上”等
+随后红色划线部分被他修改删除，他还把这条微博之前的评论都清空了，仅留下最新评论 https://t.co/41bobUdPCl<br><img src='/temp/image/2023/x-Month-2/1628753091871793156_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628753091871793156_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628753091871793156_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628753091871793156_3.jpg' width='450' height='500'><br><br>北京时间2023-02-23T22:09:02Z<br>https://t.co/e2eh7qcAlq<br><img src='/temp/image/2023/x-Month-2/1628758839557234688_0.jpg' width='450' height='500'><br><br>北京时间2023-02-23T23:11:34Z<br>https://t.co/Qct7iqjEZX<br><img src='/temp/image/2023/x-Month-2/1628774576720052226_0.jpg' width='450' height='500'><br><br>
