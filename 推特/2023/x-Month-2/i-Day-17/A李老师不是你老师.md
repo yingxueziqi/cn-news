@@ -1,2 +1,4 @@
-北京时间2023-02-17T00:44:06Z<br>@torontobigface 喷了，天天靠医保拿药看病，一分钱掰成两半花的老头老太太不懂医保改革，一群三四十岁，这辈子没进过几次医院，买过最接近处方的药是伟哥的爱国KOL懂什么是医保改革。
-疫情时候这帮人整天“老人小孩怎么办”，现在老人真有问题了，跟你科普起文字游戏了<br><br><br>
+北京时间2023-02-17T15:49:32Z<br>网友投稿
+在宁波大学昔日做核酸的场地，墙上贴着一张“新冠疫情纪念柱” https://t.co/CYpKDS94MZ<br><img src='/temp/image/2023/x-Month-2/1626489007176556546_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626489007176556546_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626489007176556546_2.jpg' width='450' height='500'><br><br>北京时间2023-02-17T15:44:53Z<br>网友投稿
+有专家警告称，若生育率持续低迷，退休年龄或将不断推迟
+评论区人民展现了坚定的不生决心。 https://t.co/3LRvmYIeFM<br><img src='/temp/image/2023/x-Month-2/1626487837146193920_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626487837146193920_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626487837146193920_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626487837146193920_3.jpg' width='450' height='500'><br><br>
