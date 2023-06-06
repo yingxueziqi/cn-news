@@ -1,0 +1,3 @@
+北京时间2022-12-22T21:26:57Z<br>网友投稿
+上海金山卫生中心 入境阳性的人会被拉到这里 一呆十几天 直到连续两次阴性才能走 有人受不了精神出现问题了还被关在这里 https://t.co/ofy9xFhB4o<br><img src='/temp/video/2022/n-Month-12/d-Day-22/whyyoutouzhele/1605917813083754496_0.jpg' width='450' height='500'><br><br>北京时间2022-12-22T19:25:32Z<br>网友投稿
+有网友称北京新办护照不受限制了 https://t.co/IcVPtoA44P<br><img src='/temp/image/2022/n-Month-12/1605887255733837824_0.jpg' width='450' height='500'><br><br>北京时间2022-12-22T19:27:24Z<br>网友投稿 北京殡仪馆现状 https://t.co/a6LUxSBdf0<br><img src='/temp/image/2022/n-Month-12/1605887728029089793_0.jpg' width='450' height='500'><br><br>
