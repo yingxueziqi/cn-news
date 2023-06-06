@@ -1,1 +1,1 @@
-北京时间2022-12-14T23:28:31Z<br>网友补充 https://t.co/vFE7qktYaZ<br><img src='/temp/image/2022/n-Month-12/1603049303164993536_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-14T23:01:00Z<br>网友补充，目前伤亡情况未知 https://t.co/6ap5AWihCO<br><img src='/temp/image/2022/n-Month-12/1603042378553647106_0.jpg' width='450' height='500'><br><br>
