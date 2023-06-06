@@ -1,2 +1,2 @@
-北京时间2023-02-08T04:03:01Z<br>网友投稿
-预备役人员法将在下个月施行 https://t.co/swd1B3jwv1<br><img src='/temp/image/2023/x-Month-2/1623049712927657984_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1623049712927657984_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1623049712927657984_2.jpg' width='450' height='500'><br><br>
+北京时间2023-02-08T04:28:20Z<br>@KhanBerke2 并不是，第一个可能是三里屯杀人事件。
+当时一名男子在大街上看到一对法中新婚夫妇，上前称自己讨厌美国人（实际上对方是一名法国人），然后用武士刀把对方的中国妻子攮死了。 https://t.co/rWPg8ohlPA<br><img src='/temp/image/2023/x-Month-2/1623056085044318208_0.jpg' width='450' height='500'><br><br>
