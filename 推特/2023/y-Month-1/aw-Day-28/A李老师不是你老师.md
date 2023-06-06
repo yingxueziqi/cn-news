@@ -1,1 +1,3 @@
-北京时间2023-01-28T04:45:17Z<br>@ATO8964 防火墙是美国建的吗<br><br><br>
+北京时间2023-01-28T20:49:11Z<br>网友投稿
+女艺人春夏疑似遭到封杀，早前的春晚镜头被全部删减，参演的影视剧里也遭遇被除名。
+据悉，在11月27日，春夏曾在微博上发表过一些评论，被网民认为是在声援白纸运动。 https://t.co/pXqrFXzYQR<br><img src='/temp/image/2023/y-Month-1/1619316658610339843_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619316658610339843_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619316658610339843_2.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619316658610339843_3.jpg' width='450' height='500'><br><br>
