@@ -1,0 +1,1 @@
+北京时间2023-01-17T03:33:25Z<br>有网友发现，卫健委公布的全国新冠死亡病例与2020年俄罗斯发布的确诊病例数字一模一样 https://t.co/cVNrFYnp6K<br><img src='/temp/image/2023/y-Month-1/1615069733354704896_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1615069733354704896_1.jpg' width='450' height='500'><br><br>
