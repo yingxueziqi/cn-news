@@ -1,5 +1,3 @@
-北京时间2022-12-31T20:16:13Z<br>习近平发表2023新年贺词
-“中国这么大，不同人会有不同诉求，对同一件事也会有不同看法。这很正常。” https://t.co/vNVSNYoSZe<br><img src='/temp/video/2022/n-Month-12/at-Day-31/whyyoutouzhele/1609161501947969538_0.jpg' width='450' height='500'><br><br>北京时间2022-12-31T21:29:11Z<br>一篇题为“2022年死去的朋友圈”的公众号文章在朋友圈里流传，点开之后的内容是每天日期加上“内容无法查看”的截图，堪称行为艺术。
-最后这篇文章被封了。 https://t.co/FTnUAyPXaJ<br><img src='/temp/image/2022/n-Month-12/1609179866179555336_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609179866179555336_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609179866179555336_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609179866179555336_3.jpg' width='450' height='500'><br><br>北京时间2022-12-31T13:22:53Z<br>网友投稿
-最近在国内的短视频网站上，全国各地都出现了“烟花侠”。
-疑似是反抗目前各地禁止燃放烟花的规定。 https://t.co/j3Nuqtwu2K<br><img src='/temp/image/2022/n-Month-12/1609057482382495744_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609057482382495744_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609057482382495744_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1609057482382495744_3.jpg' width='450' height='500'><br><br>
+北京时间2022-12-31T19:41:48Z<br>网友投稿 今晚 河南许昌
+有市民在街头燃放烟花，随即被赶来的警察阻止，然而很快，在不远处又有人点燃烟花，引来群众喝彩。
+据许昌市《关于全区域禁止燃放烟花爆竹的通知》要求，自2020年2月7日起，全域禁止燃放烟花爆竹。违者可处100-500元罚款及15日以下行政拘留。 https://t.co/1rSwfBChbp<br><img src='/temp/video/2022/n-Month-12/at-Day-31/whyyoutouzhele/1609152841532280841_0.jpg' width='450' height='500'><br><br>
