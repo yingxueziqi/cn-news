@@ -1,1 +1,2 @@
-北京时间2022-11-15T01:31:31Z<br>网友投稿了广州海珠区暴动事发之前的视频，有一名领导与民众就物资问题交涉未果，随后民众一拥而上… https://t.co/iRj3pPgvNQ<br><img src='/temp/video/2022/o-Month-11/k-Day-15/whyyoutouzhele/1592208621336956928_0.jpg' width='450' height='500'><img src='/temp/video/2022/o-Month-11/k-Day-15/whyyoutouzhele/1592208621336956928_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-15T01:22:12Z<br>网友投稿
+微博上广州市民对海珠区暴动的反应 https://t.co/iuZDh62k8w<br><img src='/temp/image/2022/o-Month-11/1592206276456767488_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592206276456767488_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592206276456767488_2.jpg' width='450' height='500'><br><br>
