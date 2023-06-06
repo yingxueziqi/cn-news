@@ -1,3 +1,3 @@
-北京时间2022-11-19T21:02:47Z<br>网友投稿 
-合肥步行街惊现一具尸体，被发现时已经腐烂
-据报道:死者是一名二十六七岁的青年，疑似患病。差不多一个月之前他在街上走动的时候，就能看到腿抖得不行，上个台阶都费劲。但是有人问他需不需要帮助时，他也不和别人说话。可能就是一个生了病无家可归的可怜人。 https://t.co/5j9YXdOJOl<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593952930876608514_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T20:34:31Z<br>郑州轻工业大学在虚假解封后允许考研同学带口罩上自习，同时还要求签承诺书来感谢学校 https://t.co/x2RD7YlXEX<br><img src='/temp/image/2022/o-Month-11/1593945815873163265_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T21:40:53Z<br>网友投稿 成都某大学做核酸的盛况 https://t.co/wLX1PS3zkG<br><img src='/temp/image/2022/o-Month-11/1593962520200478720_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T21:18:38Z<br>网友投稿
+有人提议在香港给付国豪树一尊雕像 https://t.co/7DMsaAm1Aq<br><img src='/temp/image/2022/o-Month-11/1593956921039413250_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T20:36:41Z<br>网友投稿
+11月19日的全国疫情数据 https://t.co/SPZTrQUZHD<br><img src='/temp/image/2022/o-Month-11/1593946362093228034_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T22:15:13Z<br>心情： https://t.co/AffQJQ0mpl<br><img src='/temp/image/2022/o-Month-11/1593971158264717312_0.jpg' width='450' height='500'><br><br>
