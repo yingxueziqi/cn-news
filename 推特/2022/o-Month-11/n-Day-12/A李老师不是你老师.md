@@ -1,2 +1,2 @@
-北京时间2022-11-12T01:13:58Z<br>深圳大学有一名食堂阿姨跳楼
-疑因疫情封控期间工作压力太大 https://t.co/pF5Mnc3eJl<br><img src='/temp/image/2022/o-Month-11/1591117039737135104_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591117039737135104_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591117039737135104_2.jpg' width='450' height='500'><br><br>
+北京时间2022-11-12T05:14:10Z<br>越来越多人发现问题的关键了
+当前疫情最严峻的问题是防疫的人全疯了 https://t.co/bc9tdHYOCC<br><img src='/temp/video/2022/o-Month-11/n-Day-12/whyyoutouzhele/1591177488339677184_0.jpg' width='450' height='500'><img src='/temp/video/2022/o-Month-11/n-Day-12/whyyoutouzhele/1591177488339677184_1.jpg' width='450' height='500'><br><br>北京时间2022-11-12T06:18:00Z<br>https://t.co/6ISVlJZLgv<br><img src='/temp/image/2022/o-Month-11/1591193551500496896_0.jpg' width='450' height='500'><br><br>
