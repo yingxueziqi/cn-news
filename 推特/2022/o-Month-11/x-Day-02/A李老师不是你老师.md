@@ -1,1 +1,2 @@
-北京时间2022-11-02T02:32:29Z<br>就在刚刚，微博上有兰州网友发现，只要带了兰州疫情的话题，自己的IP就会变成四川。 https://t.co/6N77ERPj0o<br><img src='/temp/image/2022/o-Month-11/1587512921885736961_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587512921885736961_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-02T02:20:20Z<br>有网友提供了一些网评员内部群的信息
+只能说可能是人一旦进入这个行业，就容易把一切都想的跟自己的思想一样简陋。 https://t.co/i628acfZce<br><img src='/temp/image/2022/o-Month-11/1587509863919255553_0.jpg' width='450' height='500'><br><br>
