@@ -1,3 +1,1 @@
-北京时间2022-11-05T07:43:09Z<br>https://t.co/GdUJMSL1xn<br><img src='/temp/image/2022/o-Month-11/1588678267418345473_0.jpg' width='450' height='500'><br><br>北京时间2022-11-05T00:29:42Z<br>后续，小区里的民众哭着求物业开开门，让他们去陪这个可怜的女孩去医院
-但是物业始终无动于衷，还把小区的电停了。
-“让我们陪孩子去医院，我们不怕感染😭” https://t.co/Synv9eofOh<br><img src='/temp/video/2022/o-Month-11/u-Day-05/whyyoutouzhele/1588569183188824064_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-05T19:51:32Z<br>西安回民街，一位居民以一己之力冲破了隔离墙 https://t.co/3YxV5Gn6zH<br><img src='/temp/video/2022/o-Month-11/u-Day-05/whyyoutouzhele/1588861570175541249_0.jpg' width='450' height='500'><br><br>
