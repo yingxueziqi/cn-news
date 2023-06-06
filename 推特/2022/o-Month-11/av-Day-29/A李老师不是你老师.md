@@ -1,1 +1,2 @@
-北京时间2022-11-29T21:50:30Z<br>网友投稿 深圳市民中心 约一小时前 https://t.co/VaO25iggjA<br><img src='/temp/image/2022/o-Month-11/1597588818429083648_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-29T21:41:18Z<br>网友投稿
+昨天晚上的纽约哥伦比亚大学民众悼念抗议现场出现了打人事件 https://t.co/gKBCKkMuxC<br><img src='/temp/image/2022/o-Month-11/1597586500224679937_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597586500224679937_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597586500224679937_2.jpg' width='450' height='500'><br><br>
