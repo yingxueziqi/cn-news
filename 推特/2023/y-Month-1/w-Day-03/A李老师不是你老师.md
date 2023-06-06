@@ -1,2 +1,1 @@
-北京时间2023-01-03T01:21:39Z<br>突发！网友投稿
-今晚河南周口，因燃放烟花引起纠纷，警察试图带走放烟花的人，民众围住警车要求放人，最后警车被掀翻 https://t.co/01ihJ3TRe2<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609963140657152002_0.jpg' width='450' height='500'><br><br>北京时间2023-01-03T01:31:10Z<br>一名身穿Balenciaga的青年向民众展示他拆下来的警车车牌 https://t.co/fsxSaViJ4d<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609965537244618752_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-03T01:32:36Z<br>民众掀翻警车的画面 https://t.co/koQ1kFTbz9<br><img src='/temp/video/2023/y-Month-1/w-Day-03/whyyoutouzhele/1609965897736765440_0.jpg' width='450' height='500'><br><br>
