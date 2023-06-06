@@ -1,1 +1,1 @@
-北京时间2022-11-08T07:10:55Z<br>疫情期间如何遛狗 https://t.co/Z2Vro5YYOi<br><img src='/temp/video/2022/o-Month-11/r-Day-08/whyyoutouzhele/1589757316458373123_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-08T02:45:21Z<br>笑死我了，什么上帝之城 https://t.co/x3wBUv8D9b<br><img src='/temp/image/2022/o-Month-11/1589690486381772801_0.jpg' width='450' height='500'><br><br>
