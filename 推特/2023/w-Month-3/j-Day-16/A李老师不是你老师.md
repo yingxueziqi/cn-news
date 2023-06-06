@@ -1,0 +1,3 @@
+北京时间2023-03-16T02:52:39Z<br>网友投稿
+曹芷馨的代理律师今天发文，称自己连续多天抢号，希望与当事人会面，然而在会见当天，看守所以“办案单位提审”为由取消了会见。
+微博原文https://t.co/LInNWgRyCR https://t.co/FvlSojSx4S<br><img src='/temp/image/2023/w-Month-3/1636077969201405952_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636077969201405952_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636077969201405952_2.jpg' width='450' height='500'><br><br>
