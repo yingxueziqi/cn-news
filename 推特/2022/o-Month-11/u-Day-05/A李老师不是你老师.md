@@ -1,5 +1,1 @@
-北京时间2022-11-05T01:57:25Z<br>网友投稿
-一个魔幻现实主义案情
-一个杀人犯之前因为和家里人吵架把全家都杀了，警察只对外宣称是有个人离家出走了，希望大家提供线索。
-结果被抓到之后抓他的那些警察因为阳性隔离了，他在看守所里面没人管就越狱跑了。
-现在在全城追捕,但是依然不说是越狱出来的杀人犯。(1/2 https://t.co/ZEeWKmr6Vq<br><img src='/temp/image/2022/o-Month-11/1588591260918771712_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588591260918771712_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588591260918771712_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588591260918771712_3.jpg' width='450' height='500'><br><br>
+北京时间2022-11-05T00:36:55Z<br>一个孕妇来新疆旅游，结果被关了三个月，现在终于成功感染阳性了 https://t.co/TRIniKNUBn<br><img src='/temp/image/2022/o-Month-11/1588571001226657796_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588571001226657796_1.jpg' width='450' height='500'><br><br>北京时间2022-11-05T00:00:28Z<br>再次说明谣言就是遥遥领先的预言 https://t.co/DB4YVFfPiH<br><img src='/temp/image/2022/o-Month-11/1588561826253770754_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588561826253770754_1.jpg' width='450' height='500'><br><br>
