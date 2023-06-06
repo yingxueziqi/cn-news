@@ -1,0 +1,2 @@
+北京时间2023-01-28T05:12:35Z<br>网友投稿
+成都望平街新添置了一个艺术装置《赢麻了》 https://t.co/l5a5ALKORL<br><img src='/temp/image/2023/y-Month-1/1619080954471124992_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1619080954471124992_1.jpg' width='450' height='500'><br><br>
