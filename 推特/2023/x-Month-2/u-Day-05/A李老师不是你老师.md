@@ -1,4 +1,1 @@
-北京时间2023-02-05T20:06:25Z<br>网友投稿
-新疆吐鲁番的灯谜 https://t.co/BqErIzuA0S<br><img src='/temp/image/2023/x-Month-2/1622204997755609089_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1622204997755609089_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1622204997755609089_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1622204997755609089_3.jpg' width='450' height='500'><br><br>北京时间2023-02-05T08:41:54Z<br>中国外交部发表声明，就美方使用武力袭击民用无人飞艇表示强烈不满和抗议。 https://t.co/z5ry7lOTu8<br><img src='/temp/image/2023/x-Month-2/1622032732871073792_0.jpg' width='450' height='500'><br><br>北京时间2023-02-05T20:14:07Z<br>网友投稿
-山西现代双语学校开展“清网运动”，要求家长打开孩子的电子设备，清查社交软件和相册，浏览器等。
-严重侵犯学生的个人隐私。 https://t.co/6EK4q6yVVD<br><img src='/temp/image/2023/x-Month-2/1622206938489536512_0.jpg' width='450' height='500'><br><br>
+北京时间2023-02-05T21:40:07Z<br>无独有偶，广州番禺南雅学校今年寒假也让学生和家长签署类似协议 https://t.co/XIjGdTmDv5<br><img src='/temp/image/2023/x-Month-2/1622228580607442945_0.jpg' width='450' height='500'><br><br>北京时间2023-02-05T20:44:33Z<br>@jakobsonradical 米兰昨天17度<br><br><br>
