@@ -1,2 +1,1 @@
-北京时间2023-02-27T00:27:42Z<br>网友投稿
-今天，新华社消息，中共中央办公厅，国务院办公厅发文：坚决反对和抵制西方“宪政”“三权鼎立”等等错误观点 https://t.co/vQFf6Yi8D9<br><img src='/temp/image/2023/x-Month-2/1629880896944758784_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629880896944758784_1.jpg' width='450' height='500'><br><br>
+北京时间2023-02-27T00:28:07Z<br>全文地址 https://t.co/Yxb4cbiGZY<br><br><br>北京时间2023-02-27T00:11:30Z<br>@Samhker 文化自信了一刚<br><br><br>
