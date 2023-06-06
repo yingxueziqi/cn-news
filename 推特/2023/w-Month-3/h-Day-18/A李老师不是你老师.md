@@ -1,0 +1,3 @@
+北京时间2023-03-18T00:39:33Z<br>网友投稿
+有网友使用百度的文心一言测试时发现，只要提问中包含魏则西，就会重复同一段话 https://t.co/pbMJs4K8bm<br><img src='/temp/image/2023/w-Month-3/1636769251238334464_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636769251238334464_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636769251238334464_2.jpg' width='450' height='500'><br><br>北京时间2023-03-18T06:53:59Z<br>网友投稿
+3月12日，邯郸市一初三学生被罚站时突然倒地后死亡，孩子父亲质疑抢救不及时 https://t.co/qkBEieefQn<br><img src='/temp/video/2023/w-Month-3/h-Day-18/whyyoutouzhele/1636863477397561345_0.jpg' width='450' height='500'><br><br>
