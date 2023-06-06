@@ -1,0 +1,1 @@
+北京时间2023-01-11T01:33:10Z<br>编辑部集体辞职后续：《戏剧与影视评论》公众号被封禁。 https://t.co/pgNOgIgxsd<br><img src='/temp/image/2023/y-Month-1/1612865143247106050_0.jpg' width='450' height='500'><br><br>
