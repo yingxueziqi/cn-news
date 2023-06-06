@@ -1,0 +1,2 @@
+北京时间2023-02-06T06:26:15Z<br>中国国防部新闻发言人就近日的气球事件发表谈话 https://t.co/P6MlDz5IOt<br><img src='/temp/image/2023/x-Month-2/1622360985737564162_0.jpg' width='450' height='500'><br><br>北京时间2023-02-06T07:59:22Z<br>伦敦大学金史密斯学院官网发布消息称，学院的一名校友LI SIQI 因为参与白纸运动而在中国境内被逮捕。
+Responding to reports of the detention of a former student https://t.co/MX6ewOmslc 来自 @goldsmithsuol<br><br><br>
