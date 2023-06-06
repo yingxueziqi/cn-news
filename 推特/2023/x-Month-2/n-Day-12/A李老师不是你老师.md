@@ -1,3 +1,1 @@
-北京时间2023-02-12T22:51:48Z<br>网友投稿
-成都发布今天发布了一条四川路桥参建的土耳其大桥在震后完好无损的视频
-结果评论区再次翻车，被网友揭穿实际上该大桥距离震中一千多公里。 https://t.co/579qAxjbO1<br><img src='/temp/image/2023/x-Month-2/1624783333589753857_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624783333589753857_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624783333589753857_2.jpg' width='450' height='500'><br><br>
+北京时间2023-02-12T21:07:15Z<br>爹要的不是感谢，要的是你不要再提起 https://t.co/jjGHKDg9Dp<br><img src='/temp/image/2023/x-Month-2/1624757023769301005_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1624757023769301005_1.jpg' width='450' height='500'><br><br>
