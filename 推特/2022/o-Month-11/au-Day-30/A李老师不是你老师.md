@@ -1,11 +1,10 @@
-北京时间2022-11-30T19:14:10Z<br>11/30号早
-上海青浦区徐盈路地铁站附近小区因一例异常全小区封控，现场部分居民与防疫人员发生冲突 https://t.co/AWl44pfkrR<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597911861735100417_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T18:36:40Z<br>日本 东京 新宿南口 晚上7点 民众悼念示威活动
-现场聚集了各种旗帜 https://t.co/XC92yOoOD2<br><img src='/temp/image/2022/o-Month-11/1597902425926823937_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T19:14:39Z<br>有网友称，在扬州东关街坊间传言的江家老宅门口有人献花。 https://t.co/6rMTdaHOH8<br><img src='/temp/image/2022/o-Month-11/1597911983243730944_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T16:40:35Z<br>近日网传兰州一名十八岁的学生与防疫人员理论的视频被广泛流传
-据悉，兰州市把所属县榆中县的学生大规模拉去封控，气温零下十多度，封控环境条件恶劣 https://t.co/06SfyNEcwk<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597873211026595842_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T17:56:19Z<br>有微博用户发表悼念江泽民相关内容
-随后被屏蔽 https://t.co/DgemJ2nq4q<br><img src='/temp/image/2022/o-Month-11/1597892269394526208_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T09:30:01Z<br>中国网直播在一条博文下表示“请大家合理表达诉求，评论区可以说话”
-但是随后评论区被站方关闭。 https://t.co/UmuOYCKkUB<br><img src='/temp/image/2022/o-Month-11/1597764855205068801_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597764855205068801_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597764855205068801_2.jpg' width='450' height='500'><br><br>北京时间2022-11-30T18:25:41Z<br>有网友在歌曲《可惜不是你》下方留言
-被禁言365天。 https://t.co/TEHURuf9Nk<br><img src='/temp/image/2022/o-Month-11/1597899663016796160_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T16:01:32Z<br>突发
-广州多个区发布通告，优化防控措施，解除临时管控区域
-11月30日，广州市海珠区、荔湾区、天河区、番禺区、从化区、白云区等多个区陆续发布通告，优化完善疫情防控措施，解除了临时管控区域的管控措施。 https://t.co/Zp8MQvgbeG<br><img src='/temp/image/2022/o-Month-11/1597863383852015617_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597863383852015617_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597863383852015617_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597863383852015617_3.jpg' width='450' height='500'><br><br>北京时间2022-11-30T20:46:56Z<br>东京 新宿南口现场  有人自发举起标识牌 https://t.co/Zl8rEkIaqG<br><img src='/temp/image/2022/o-Month-11/1597935210292686848_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T18:15:55Z<br>网友投稿
-目前微博上关于江泽民逝世的话题只有蓝V可以发言
-普通用户已经无法就此事发博或评论 https://t.co/OkW9mDQxga<br><img src='/temp/image/2022/o-Month-11/1597897202512596992_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-30T18:43:32Z<br>美国歌手 Taylor swift的歌曲Only the young 
+在国内音乐平台开启评论审查和精选
+有网友发表评论被永久禁言 https://t.co/Ms3K0uKQh4<br><img src='/temp/image/2022/o-Month-11/1597904151614484485_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597904151614484485_1.jpg' width='450' height='500'><br><br>北京时间2022-11-30T18:55:50Z<br>网友投稿 11.30日18点左右
+各MCN对旗下自媒体艺人发来的消息，要求所有账号一律静默，不知道是否与江泽民去世有关。 https://t.co/Gx2YKL3wtb<br><img src='/temp/image/2022/o-Month-11/1597907247879032834_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T09:12:28Z<br>昨晚广州海珠区后滘群体性事件的一个补充视频
+在现场出现了女性防爆警察。 https://t.co/PRVLIEU8xl<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597760441954209793_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T17:20:09Z<br>在今天发布的《告全党全军全国各族人民书》中，有提到六四事件。 https://t.co/u8sGic7JOD<br><img src='/temp/image/2022/o-Month-11/1597883167889063937_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T21:00:24Z<br>我想和大家说
+言论自由本身就包含了各种不同的声音
+且任何群体中本身就有激进派和温和派
+每个人都有自己的观点，亦都可以反对不同的观点，不要一概而论。
+过去几天，一直关注我的朋友一定了解，从富士康到新疆再到中国各大城市，是各种诉求引发的各种事件。
+请理性看待正在发生的一切<br><br><br>
