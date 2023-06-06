@@ -1,2 +1,2 @@
-北京时间2022-11-21T04:27:02Z<br>网友投稿
-河北师大学生终于硬了点了 https://t.co/eNf3r7AbYm<br><img src='/temp/image/2022/o-Month-11/1594427115918839812_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594427115918839812_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-21T01:33:55Z<br>网友投稿
+长安大学，因为先给女生送水吵起来了 https://t.co/5CUQBg0Vv5<br><img src='/temp/image/2022/o-Month-11/1594383551415418882_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_3.jpg' width='450' height='500'><br><br>北京时间2022-11-21T02:49:54Z<br>河北师范大学，学生们在宿舍里高喊“抗议” https://t.co/SB752Xl6rl<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594402673490477056_0.jpg' width='450' height='500'><br><br>
