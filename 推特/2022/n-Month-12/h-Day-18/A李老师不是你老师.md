@@ -1,2 +1,2 @@
-北京时间2022-12-18T00:13:57Z<br>据悉，事件已拘捕了4名男女，其中包括兩名未成年男女，16歲女童及17歲少年。另外，一名30歲姓戴男子及37歲姓劉男司機同樣被捕。所有被捕人涉嫌非法禁錮被捕現正被扣留調查。
-据悉，该女子今早本打算前往监狱探望涉嫌危险驾驶而被判入狱的男友，却被掳走。<br><br><br>
+北京时间2022-12-18T18:41:29Z<br>网友投稿
+合肥某社区，社区工作人员把健康包放居民门口摆拍，最后又拿走，这一幕恰巧被摄像头拍到 https://t.co/6NRPEeE0wP<br><img src='/temp/video/2022/n-Month-12/h-Day-18/whyyoutouzhele/1604426617857921024_0.jpg' width='450' height='500'><br><br>北京时间2022-12-18T19:26:37Z<br>网友投稿 https://t.co/TnIImGXgaw<br><img src='/temp/image/2022/n-Month-12/1604437978453082113_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604437978453082113_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604437978453082113_2.jpg' width='450' height='500'><br><br>
