@@ -1,0 +1,2 @@
+北京时间2023-02-17T00:50:06Z<br>16日白天，在大连青泥洼桥地铁站
+仍然有一部分民众在抗议医保改革，现场齐唱国际歌 https://t.co/bn31nYj5P7<br><img src='/temp/video/2023/x-Month-2/i-Day-17/whyyoutouzhele/1626262657060814848_0.jpg' width='450' height='500'><br><br>
