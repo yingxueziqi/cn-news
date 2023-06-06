@@ -1,4 +1,1 @@
-北京时间2022-11-17T08:24:33Z<br>郑州大学的同学讲诉了事情的经过和这样做的理由：因为我们再也忍受不了了。 https://t.co/a6uwCAVtR5<br><img src='/temp/image/2022/o-Month-11/1593037341110992896_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1593037341110992896_1.jpg' width='450' height='500'><br><br>北京时间2022-11-17T21:09:50Z<br>呼和浩特金川开发区
-一对夫妇持刀对抗警察，拒绝去方舱隔离。
-据投稿人称，呼和浩特新建了许多方舱，据说有任务，必须把人住满，因此各地出现了许多莫名其妙地把阴性拉走隔离的事情。
-如果一栋楼里有一个阳性，整栋楼都需要拉走。通知你如果你不走的话，直接警察带盾牌来抓。 https://t.co/plbnQRs6d0<br><img src='/temp/video/2022/o-Month-11/i-Day-17/whyyoutouzhele/1593229927490662402_0.jpg' width='450' height='500'><br><br>北京时间2022-11-17T12:19:37Z<br>嗯… https://t.co/uB2YzHUXHx<br><img src='/temp/image/2022/o-Month-11/1593096493623545859_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-17T22:31:30Z<br>https://t.co/WjhhYGSlY9<br><img src='/temp/image/2022/o-Month-11/1593250479936401408_0.jpg' width='450' height='500'><br><br>
