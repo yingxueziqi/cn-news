@@ -1,2 +1,2 @@
-北京时间2022-11-29T21:41:18Z<br>网友投稿
-昨天晚上的纽约哥伦比亚大学民众悼念抗议现场出现了打人事件 https://t.co/gKBCKkMuxC<br><img src='/temp/image/2022/o-Month-11/1597586500224679937_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597586500224679937_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597586500224679937_2.jpg' width='450' height='500'><br><br>
+北京时间2022-11-29T23:51:11Z<br>有网友提供消息称， 北京各高校开始筹备建方舱自行隔离
+这个消息目前收到几个投稿，但是无法准确核实。请大家在评论区补充核实 https://t.co/iHO009wwmK<br><img src='/temp/image/2022/o-Month-11/1597619187794743298_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1597619187794743298_1.jpg' width='450' height='500'><br><br>
