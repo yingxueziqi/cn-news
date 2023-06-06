@@ -1,3 +1,3 @@
-北京时间2022-11-12T22:28:49Z<br>河南淅川县，一居民因为违反防疫规定外出而被绑在电线杆上。 https://t.co/xCG3Un11ey<br><img src='/temp/video/2022/o-Month-11/n-Day-12/whyyoutouzhele/1591437866055483394_0.jpg' width='450' height='500'><br><br>北京时间2022-11-12T17:30:53Z<br>资本的力量太强大了✌️😭✌️ https://t.co/RVUwO8HYqE<br><img src='/temp/image/2022/o-Month-11/1591362889910452224_0.jpg' width='450' height='500'><br><br>北京时间2022-11-12T16:49:20Z<br>国家疾控局公布数据，次密接阳性概率是10万个人里可能有3个…
-之前折腾了多少人 https://t.co/smiHII95uU<br><img src='/temp/image/2022/o-Month-11/1591352433359597570_0.jpg' width='450' height='500'><br><br>北京时间2022-11-12T18:14:42Z<br>孟大佐又开始发国难财了 https://t.co/SmRFWoF7Gc<br><img src='/temp/image/2022/o-Month-11/1591373916349816836_0.jpg' width='450' height='500'><br><br>北京时间2022-11-12T21:33:12Z<br>过去三年里，一有什么因为核酸进不了医院之类的事情评论区里的清狗们最喜欢说的一句话就是“凭什么让所有人因为你们家那点儿事承担风险”
-现在情况正好倒过来了，为啥要全国人民为了你妈的健康而被关在家里呢😆 https://t.co/R8iUF4NCYB<br><img src='/temp/image/2022/o-Month-11/1591423869625278464_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-12T17:27:29Z<br>https://t.co/liQHGA6muE<br><img src='/temp/image/2022/o-Month-11/1591362034142416896_0.jpg' width='450' height='500'><br><br>北京时间2022-11-12T21:48:29Z<br>就像我说的
+国务院说要在坚持动态清零的前提下优化防疫，到基层的结果就是更加变态的清零。
+底下人也不傻，都知道真正应该听谁的。 https://t.co/i6RWHDYt5b<br><img src='/temp/image/2022/o-Month-11/1591427714573008897_0.jpg' width='450' height='500'><br><br>
