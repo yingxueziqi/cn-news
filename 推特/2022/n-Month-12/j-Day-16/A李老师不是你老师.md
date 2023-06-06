@@ -1,2 +1,1 @@
-北京时间2022-12-16T21:12:03Z<br>网友投稿
-四川南充延安路 民众在车里输液 https://t.co/MyV57t2DbQ<br><img src='/temp/image/2022/n-Month-12/1603739736450940933_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1603739736450940933_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-16T20:10:00Z<br>网友投稿 https://t.co/lWw5i0ZzK4<br><img src='/temp/image/2022/n-Month-12/1603724119404695554_0.jpg' width='450' height='500'><br><br>
