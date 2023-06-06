@@ -1,3 +1,4 @@
-北京时间2022-12-24T18:21:48Z<br>网友投稿 https://t.co/Poz6HzVf13<br><img src='/temp/image/2022/n-Month-12/1606595994652745728_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606595994652745728_1.jpg' width='450' height='500'><br><br>北京时间2022-12-24T23:19:59Z<br>网友投稿 今晚郑州 https://t.co/N0XRlX6fBy<br><img src='/temp/video/2022/n-Month-12/b-Day-24/whyyoutouzhele/1606671033301450759_0.jpg' width='450' height='500'><br><br>北京时间2022-12-24T20:02:22Z<br>网友投稿
-人民日报社四川分社社长林治波的朋友圈 https://t.co/thS7fGouHd<br><img src='/temp/image/2022/n-Month-12/1606621301984169984_0.jpg' width='450' height='500'><br><br>北京时间2022-12-24T18:18:13Z<br>网友投稿
-这里是广州大学（双非）考研考场监考老师群里面分享的情况，今年的考生和监考老师都太难了…… https://t.co/xm8EARYnEx<br><img src='/temp/image/2022/n-Month-12/1606595092583780353_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606595092583780353_1.jpg' width='450' height='500'><br><br>北京时间2022-12-24T23:04:56Z<br>网友投稿 今晚的成都街头，民众已经恢复了正常生活 https://t.co/uYR5ZpWB0l<br><img src='/temp/video/2022/n-Month-12/b-Day-24/whyyoutouzhele/1606667247887474688_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-24T23:45:08Z<br>网友投稿
+目前四川正在使用一种类似健康码的叫做平安电子身份凭证码
+今天有公安在小区门口拦着人扫码进行办理给人一种发放良民证的感觉
+根据功能看或许这个良民证会和小区出入登记挂钩关联门禁让民警随时知道是否在家 https://t.co/HXkSM7qqqB<br><img src='/temp/image/2022/n-Month-12/1606677363848257541_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1606677363848257541_1.jpg' width='450' height='500'><br><br>
