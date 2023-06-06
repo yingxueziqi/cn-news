@@ -1,0 +1,3 @@
+北京时间2022-11-09T03:14:31Z<br>温州城管驱赶残疾人表演艺术团
+这位大姐说的太好了 https://t.co/MufR8HTn1j<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590060212324421632_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T01:57:34Z<br>新疆库尔勒，自己的爸爸进入当地隔离点后死亡。
+目前死因正在调查。 https://t.co/PR9giYltAT<br><img src='/temp/image/2022/o-Month-11/1590040847751708672_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_3.jpg' width='450' height='500'><br><br>
