@@ -1,2 +1,5 @@
-北京时间2023-03-29T04:26:14Z<br>@Nailo0628 所以人家活该等死的样子在你看来很体面啊<br><br><br>北京时间2023-03-29T05:39:26Z<br>@PianistHan @Nailo0628 说别人的时候别人的遭遇全是因为自己不努力无能狂怒，到自己这儿就成了跟自己能力没关系。别人看到底层人民的无助和悲哀是无能狂怒，自己的朋友看老人等死捡烟头就是悲天悯人？是你朋友在评论区里看见别人等死的经历获得了自我感动好吧，我发的各个阶层的问题都不少，你往下翻慢慢义愤填膺哈。<br><br><br>北京时间2023-03-29T05:18:46Z<br>@PianistHan @Nailo0628 那按你的逻辑你不喜欢中国的管理制度还不是因为你自己不努力？
-也别说别人无能狂怒，没有别人的付出你现在还在家里隔离呢<br><br><br>
+北京时间2023-03-29T22:08:54Z<br>网友投稿
+3月29日 贵州地铁大合唱《没有理想的人不伤心》完整版 https://t.co/BpK3J5tRbN<br><img src='/temp/video/2023/w-Month-3/av-Day-29/whyyoutouzhele/1641079990664962049_0.jpg' width='450' height='500'><br><br>北京时间2023-03-29T19:20:37Z<br>网友投稿
+贵阳一地铁通道内，年轻人聚在一起合唱《没有理想的人不伤心》 https://t.co/1U9Wg6tmVP<br><img src='/temp/video/2023/w-Month-3/av-Day-29/whyyoutouzhele/1641037644032356352_0.jpg' width='450' height='500'><br><br>北京时间2023-03-29T23:15:25Z<br>网友投稿
+B站视频“如果祖国有需要，你会上前线吗？小学生和老年人的回答让人泪目”
+结果评论区和弹幕再次大翻车 https://t.co/HktfoAVicF<br><img src='/temp/image/2023/w-Month-3/1641096729238855681_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641096729238855681_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641096729238855681_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1641096729238855681_3.jpg' width='450' height='500'><br><br>
