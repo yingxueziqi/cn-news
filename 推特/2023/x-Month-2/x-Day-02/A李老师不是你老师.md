@@ -1,4 +1,5 @@
-北京时间2023-02-02T19:41:35Z<br>网友投稿
-B站胡鑫宇相关话题下的评论 https://t.co/Wb2O3XasXC<br><img src='/temp/image/2023/x-Month-2/1621111587351461888_0.jpg' width='450' height='500'><br><br>北京时间2023-02-02T23:29:37Z<br>网友投稿
-2月2日，沈阳辽宁中医大学附属医院，一名男子持改装射钉枪袭击了一名医生。 https://t.co/CHFq39uoBk<br><img src='/temp/image/2023/x-Month-2/1621168971243307009_0.jpg' width='450' height='500'><br><br>北京时间2023-02-02T19:45:08Z<br>网友投稿
-现在的高中为了预防学生心理出现问题的方式： https://t.co/qcXe4pb4oN<br><img src='/temp/image/2023/x-Month-2/1621112479261810689_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1621112479261810689_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1621112479261810689_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1621112479261810689_3.jpg' width='450' height='500'><br><br>北京时间2023-02-02T20:32:55Z<br>https://t.co/udRcFph5Mg<br><img src='/temp/image/2023/x-Month-2/1621124505287688192_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1621124505287688192_1.jpg' width='450' height='500'><br><br>
+北京时间2023-02-02T10:24:36Z<br>澎湃新闻发布了胡鑫宇事件新闻发布会调查情况通报
+文中罗列了事情经过与现场情况，以及尸检，心理刻画及录音鉴定情况。
+文中表示，其尸检结果符合自杀特征，对其心理刻画认为其在自杀前透露出严重的心理问题。并在10月14日17时40分，23时08分分别录制了两段录音表达了自杀意愿。 https://t.co/uN65Bvfuwu<br><img src='/temp/image/2023/x-Month-2/1620971416702312449_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1620971416702312449_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1620971416702312449_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1620971416702312449_3.jpg' width='450' height='500'><br><br>北京时间2023-02-02T10:30:54Z<br>现在，您是否认同2月2日官方新闻发布会上有关胡鑫宇自缢身亡的通报？<br><br><br>北京时间2023-02-02T20:44:29Z<br>有趣的是，一直以来家长们都在妖魔化电子游戏，认为电子游戏毒害自己孩子的心理健康。
+但是事实上，一个优秀的游戏往往都是在教你如何爱他人，爱身边的一切，如何树立正确的普世价值观和鼓励你追寻自己的理想
+反倒是教材和试卷里的很多题目已经扭曲到不当人了<br><br><br>
