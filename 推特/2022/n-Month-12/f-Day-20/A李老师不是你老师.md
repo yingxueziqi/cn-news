@@ -1,2 +1,5 @@
-北京时间2022-12-20T01:49:08Z<br>广西妇幼保健院儿童保健科一名副主任医师周某通过修改B超单等行为，向产妇及家属隐瞒“双胞胎”真相，计划生产后秘密将其中一名婴儿卖给他人，并已经收取他人购买婴儿的定金。周某等人以出卖为目的，偷盗婴幼儿，其行为构成拐卖儿童罪。
-另据澎湃新闻消息：南宁中院立案庭工作人员表示，案件确实存在。 https://t.co/VdwvDaO58u<br><img src='/temp/image/2022/n-Month-12/1604896628674072581_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-20T01:58:32Z<br>网友投稿
+胡锡进今天的最新文章
+在文中，除了日常叼盘之外，也出现了一些暴言
+比如他说国家在防疫这件事上最终选择了实事求是，被评论反问那之前选择了什么？
+博文不到一小时就被删除了。 https://t.co/M57EqM6svh<br><img src='/temp/image/2022/n-Month-12/1604898993649356801_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604898993649356801_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604898993649356801_2.jpg' width='450' height='500'><br><br>北京时间2022-12-20T06:40:27Z<br>https://t.co/t2KyZTzFmh<br><img src='/temp/image/2022/n-Month-12/1604969942834728960_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604969942834728960_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604969942834728960_2.jpg' width='450' height='500'><br><br>北京时间2022-12-20T03:43:24Z<br>https://t.co/AK5IP8eE4i<br><img src='/temp/image/2022/n-Month-12/1604925385384271892_0.jpg' width='450' height='500'><br><br>
