@@ -1,3 +1,4 @@
-北京时间2022-11-20T07:05:11Z<br>网友投稿
-乌鲁木齐时代广场一辆载着孩子的救护车发生侧翻事故
-视频中的女声说他们刚从隔离点出来，救护车倒了，上面在冒烟，有很多人受伤，还有很多小孩在里面.... https://t.co/ufyeSHI5ZO<br><img src='/temp/video/2022/o-Month-11/f-Day-20/whyyoutouzhele/1594104530077097986_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-20T02:19:26Z<br>成都龙泉驿区 静默 https://t.co/jaY2Gkwr2T<br><img src='/temp/image/2022/o-Month-11/1594032618592505861_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594032618592505861_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594032618592505861_2.jpg' width='450' height='500'><br><br>北京时间2022-11-20T01:32:33Z<br>https://t.co/EoU5Ruag9f<br><img src='/temp/image/2022/o-Month-11/1594020821005176832_0.jpg' width='450' height='500'><br><br>北京时间2022-11-20T00:03:17Z<br>网友投稿
+在国务院二十条宣布禁止因疫情随意静默封城后。河南省洛阳市政府又想到了新的奇招，洛阳市涧西区因为“雾霾严重”所以全区限制通行3天。官方网络媒体在发布通告后几小时就把这则通告删除了。第一不是因为新冠，是因为雾霾，第二不是静默，是限制通行。不知道下一步封城还能有啥新名词出来。 https://t.co/RFyG59wJEI<br><img src='/temp/image/2022/o-Month-11/1593998355147157504_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1593998355147157504_1.jpg' width='450' height='500'><br><br>北京时间2022-11-20T00:26:11Z<br>清狗是不是有点魔怔了，啥都能怪到躺平上面
+你这内容里自己也说了医院因为是阳性所以不接收
+这不明显是因为防疫封控把人害死的吗 https://t.co/Ffjinzpt5P<br><img src='/temp/image/2022/o-Month-11/1594004118439219200_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594004118439219200_1.jpg' width='450' height='500'><br><br>
