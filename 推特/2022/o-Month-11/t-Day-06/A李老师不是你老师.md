@@ -1,3 +1,1 @@
-北京时间2022-11-06T02:25:29Z<br>笑死我了 https://t.co/UlaRrhRsyk<br><img src='/temp/image/2022/o-Month-11/1588960709659922432_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1588960709659922432_1.jpg' width='450' height='500'><br><br>北京时间2022-11-06T02:55:54Z<br>武汉有个小区一个大爷在群里说再不解封就开煤气炸楼。目前后续情况不明
-“我是二十多年的老党员了，一心为中国拼搏，你们把我逼成这个样子”
-“我马上要退休了，你把我这么折磨” https://t.co/Tu34ITMZys<br><img src='/temp/video/2022/o-Month-11/t-Day-06/whyyoutouzhele/1588968365728894976_0.jpg' width='450' height='500'><br><br>北京时间2022-11-06T06:16:23Z<br>深圳某酒吧 https://t.co/ONBhFOQ5hm<br><img src='/temp/image/2022/o-Month-11/1589018819359805440_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589018819359805440_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-06T01:11:44Z<br>https://t.co/GA2JjYY4cX<br><img src='/temp/image/2022/o-Month-11/1588942149076529152_0.jpg' width='450' height='500'><br><br>
