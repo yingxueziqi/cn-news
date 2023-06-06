@@ -1,2 +1,2 @@
-北京时间2022-11-30T02:54:15Z<br>瑞典 斯德哥尔摩 https://t.co/P3iuOzkdmg<br><img src='/temp/image/2022/o-Month-11/1597665258696749056_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T02:30:15Z<br>德国 杜塞尔多夫 https://t.co/HruvCqSjLG<br><img src='/temp/image/2022/o-Month-11/1597659220572508161_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T02:59:35Z<br>广州海珠区后滘 补充视频
-现场投掷催泪瓦斯 https://t.co/0bZ0maAWXr<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597666601461248000_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T06:01:49Z<br>有网友在微博上称，自己的护照被所在地私自注销。 https://t.co/FEZAgBgT0Y<br><img src='/temp/image/2022/o-Month-11/1597712462065074176_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-30T00:27:59Z<br>网友投稿
+目前各地均陆续发布了疫情募捐倡议书。 https://t.co/gNtRfBtwq4<br><img src='/temp/image/2022/o-Month-11/1597628450969628672_0.jpg' width='450' height='500'><br><br>
