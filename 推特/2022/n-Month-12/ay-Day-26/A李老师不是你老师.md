@@ -1,4 +1,2 @@
-北京时间2022-12-26T23:54:40Z<br>国家卫健委发文
-取消入境后的全员核酸检测和集中隔离
-将有序恢复中国公民出境旅游 https://t.co/OS9JmvqBkX<br><img src='/temp/image/2022/n-Month-12/1607404537890983936_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607404537890983936_1.jpg' width='450' height='500'><br><br>北京时间2022-12-26T21:53:07Z<br>网友投稿
-上海墓园号召全体党员干部支援殡葬一线 https://t.co/48RdiTMXv3<br><img src='/temp/image/2022/n-Month-12/1607373948810924032_0.jpg' width='450' height='500'><br><br>北京时间2022-12-26T21:21:34Z<br>网传12月25日全国新冠疫情防控工作电视电话会议主要内容 https://t.co/UIGrUz92a7<br><img src='/temp/image/2022/n-Month-12/1607366007022129152_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607366007022129152_1.jpg' width='450' height='500'><br><br>
+北京时间2022-12-26T19:05:26Z<br>网友投稿
+河南洛阳三中新建学校工地农民工工资拖欠，工人用挖掘机私家车卡车堵住工地入口 https://t.co/ugRDBui97s<br><img src='/temp/image/2022/n-Month-12/1607331749763350529_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607331749763350529_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1607331749763350529_2.jpg' width='450' height='500'><br><br>
