@@ -1,1 +1,1 @@
-北京时间2023-01-24T03:19:47Z<br>@dbezuqun 笑死我了<br><br><br>
+北京时间2023-01-24T20:34:11Z<br>梦回2022，江西东乡宣布将于1月25日，26日连续两天开展全民核酸检测 https://t.co/xEzjNPdcoD<br><img src='/temp/image/2023/y-Month-1/1617863333541216256_0.jpg' width='450' height='500'><br><br>
