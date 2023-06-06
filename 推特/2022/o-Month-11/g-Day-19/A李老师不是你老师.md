@@ -1,2 +1,1 @@
-北京时间2022-11-19T03:03:16Z<br>今晚在广州荔湾芳村花园外的事情。
-由于政府要在芳村居民区建设方舱，而且就在居民楼几百米不到的位置建。居民们意见很大，下午居委说项目暂停了，大家不放心今晚继续围堵 https://t.co/7pBwlgJz6d<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593681259477307393_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T01:00:00Z<br>嗯。。。。 https://t.co/WhAv7P6HGa<br><img src='/temp/image/2022/o-Month-11/1593650240048939008_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T03:59:51Z<br>李老师，保定某高校因为隔壁学校有个阳性，凌晨三点让现实卷铺盖拉走隔离，md好痛苦啊，这个世界还有救吗 https://t.co/0v5Egb925f<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593695499403534336_0.jpg' width='450' height='500'><br><br>
