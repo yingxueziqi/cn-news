@@ -1,11 +1,7 @@
-北京时间2023-02-24T21:06:00Z<br>网友投稿
-2月22日，湖南有关部门通报了邵阳县郦家坪镇原干塘村党支部书记粟甲午非法一村支书非法占有孤儿生活补贴五年总计4.61万元，用于家庭日常生活开支。
-当地民政局称，误将孤儿补贴发放给了村支书。 https://t.co/OGz9WodHC4<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629105361004142592_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629105361004142592_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:00:34Z<br>2月23日，有网友路过乌鲁木齐火灾发生地，吉祥苑小区。
-小区大门依然封死 街道旁有十几个警察和便衣轮番巡逻 有人拿出手机想拍小区时立刻有便衣来制止
-图二左侧，火灾发生过的单元，外立面已经被粉刷一新，但房顶依然能看得出来被火烧过的痕迹。 https://t.co/DP6sfV7L4F<br><img src='/temp/image/2023/x-Month-2/1629058699036618752_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629058699036618752_1.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:16:03Z<br>网友投稿
-18线城市的小医院现在也要求提交护照了 https://t.co/i9sFxz7QET<br><img src='/temp/image/2023/x-Month-2/1629062592474882051_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:26:20Z<br>网友投稿
-济南章丘悦珑台，原恒大的项目，山东高速也有股份分红。如今恒大完犊子了，山东高速也跑路了，中铁建接手代建，工期一拖再拖。
-民众跪地请愿 https://t.co/IS1AH954WC<br><img src='/temp/image/2023/x-Month-2/1629065182340055047_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:12:35Z<br>网友投稿
-2月24日，河北沧州一楼盘年后迟迟未开工，业主们组织去住建局  政府讨说法 维护自身权益，过程中被拘留扣押7人。
-有业主将视频发布到快手，抖音平台，被网警打电话过来要求删除。 https://t.co/4BkWhqE4WI<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629061720722268162_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T20:31:24Z<br>什么鬼？
-有政协委员提议严厉打击利用阴阳五行风水学说预测股市 https://t.co/CoMsPtQQgf<br><img src='/temp/image/2023/x-Month-2/1629096657022320640_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629096657022320640_1.jpg' width='450' height='500'><br><br>
+北京时间2023-02-24T18:21:29Z<br>网友投稿
+2月23日，东莞市寮步镇上屯村，因村民得不到应有赔偿，施工方就开始动工，导致村民在施工现场抗议。
+期间民众与警察发生冲突，在抓捕抗议示威者过程中使用雨伞遮挡防止录像拍照。 https://t.co/fzwNXpL5CP<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629063962338762753_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:07:51Z<br>网友投稿 
+2月22日晚，深圳龙华汽车站，因为工厂不招人，导致大量外地务工人员滞留在车站外。 https://t.co/nId0UG8uaB<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629060531683303424_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T09:46:38Z<br>澎湃新闻消息，中国外交部网站2月24日发表关于政治解决乌克兰危机的十二条中国立场
+包括尊重各国主权，摒弃冷战思维，停火止战，启动和谈，解决人道危机，维护核安全，推动战后重建等 https://t.co/6s9A9yUG0l<br><img src='/temp/image/2023/x-Month-2/1628934396102209536_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628934396102209536_1.jpg' width='450' height='500'><br><br>北京时间2023-02-24T21:20:16Z<br>网友投稿
+工人日报发文称，现在定论四天工作制更好还为时尚早。
+此文一出立即遭遇群嘲，有网友表示，我国应该先落实五天工作制 https://t.co/K507r034UN<br><img src='/temp/image/2023/x-Month-2/1629108954751008769_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_3.jpg' width='450' height='500'><br><br>
