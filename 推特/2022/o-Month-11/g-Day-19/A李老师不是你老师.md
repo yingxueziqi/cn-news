@@ -1,1 +1,3 @@
-北京时间2022-11-19T20:05:35Z<br>爱国小留遭遇致命打击！ https://t.co/4Qg22J0Fr9<br><img src='/temp/image/2022/o-Month-11/1593938535270256640_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-19T21:02:47Z<br>网友投稿 
+合肥步行街惊现一具尸体，被发现时已经腐烂
+据报道:死者是一名二十六七岁的青年，疑似患病。差不多一个月之前他在街上走动的时候，就能看到腿抖得不行，上个台阶都费劲。但是有人问他需不需要帮助时，他也不和别人说话。可能就是一个生了病无家可归的可怜人。 https://t.co/5j9YXdOJOl<br><img src='/temp/video/2022/o-Month-11/g-Day-19/whyyoutouzhele/1593952930876608514_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T20:34:31Z<br>郑州轻工业大学在虚假解封后允许考研同学带口罩上自习，同时还要求签承诺书来感谢学校 https://t.co/x2RD7YlXEX<br><img src='/temp/image/2022/o-Month-11/1593945815873163265_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T21:40:53Z<br>网友投稿 成都某大学做核酸的盛况 https://t.co/wLX1PS3zkG<br><img src='/temp/image/2022/o-Month-11/1593962520200478720_0.jpg' width='450' height='500'><br><br>
