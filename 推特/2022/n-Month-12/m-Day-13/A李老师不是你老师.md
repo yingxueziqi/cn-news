@@ -1,0 +1,2 @@
+北京时间2022-12-13T00:41:59Z<br>今晚 四川南充市 川北医学院
+在四川高校基本全部遣返的情况下学生还在继续考期末，因此今晚学生们自发游行，本科生要求返乡，专硕要求同工同酬 https://t.co/FX8SK4cbDg<br><img src='/temp/video/2022/n-Month-12/m-Day-13/whyyoutouzhele/1602343013946114053_0.jpg' width='450' height='500'><br><br>
