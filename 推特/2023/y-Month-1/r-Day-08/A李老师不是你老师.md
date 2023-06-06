@@ -1,3 +1,1 @@
-北京时间2023-01-08T02:27:12Z<br>1月8日起，入华政策重大调整
-不再需要向大使馆申请健康码，不再对入境人员实施核酸检测和隔离，仅凭48小时前核酸就可以登机。
-同学们，你们都可以回家了 https://t.co/F8HEJc6VWr<br><img src='/temp/image/2023/y-Month-1/1611791579194482693_0.jpg' width='450' height='500'><br><br>
+北京时间2023-01-08T04:31:26Z<br>网友补充，今晚一名少年因为在桥上放炮被抓了 https://t.co/jYOkNx6D21<br><img src='/temp/video/2023/y-Month-1/r-Day-08/whyyoutouzhele/1611822842064130048_0.jpg' width='450' height='500'><br><br>北京时间2023-01-08T02:32:57Z<br>@ShuoaShuo 离家的原因有千万条，但是回家的理由一条就够了。<br><br><br>北京时间2023-01-08T00:51:57Z<br>@Hoshikawa_ran 如此生活三十年，直到大厦崩塌......<br><br><br>
