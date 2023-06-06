@@ -1,1 +1,1 @@
-北京时间2022-11-23T01:58:17Z<br>问这问那，不如看点苏联笑话 https://t.co/BBtsMFKziJ<br><img src='/temp/image/2022/o-Month-11/1595114460112297985_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1595114460112297985_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-23T07:07:24Z<br>最新消息，警察方面开始警告工人立刻返回宿舍，不要与极少数不法分子为伍 https://t.co/K3g58ZtU8B<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595192252250439681_0.jpg' width='450' height='500'><br><br>
