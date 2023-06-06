@@ -1,6 +1,3 @@
-北京时间2023-01-18T03:42:46Z<br>我对《三体》没有什么态度，因为没看过
-但却对最近《三体》里的“文革”之争挺感兴趣
-电视剧可以拍文革，并不代表真正的文化自由，而只是特定的剧可以在特定的情况下表达特定的自由
-而大众要的是讨论的自由
-这是两码事
-如果电视剧可以拍，但你为它辩护的时候却只敢用缩写防止炸号，你觉得这是文化自由吗 https://t.co/WAfw36RiPe<br><img src='/temp/image/2023/y-Month-1/1615434472412831759_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1615434472412831759_1.jpg' width='450' height='500'><br><br>
+北京时间2023-01-18T18:14:45Z<br>https://t.co/NCNeiukwgE<br><img src='/temp/image/2023/y-Month-1/1615653914044399619_0.jpg' width='450' height='500'><br><br>北京时间2023-01-18T18:19:06Z<br>首个国营约车APP平台“强国交通”即将上线，未来将接入市场全部运力的90% https://t.co/qWj8wsfmeY<br><img src='/temp/image/2023/y-Month-1/1615655009185632257_0.jpg' width='450' height='500'><br><br>北京时间2023-01-18T19:17:14Z<br>https://t.co/h0jhbqWhNF<br><img src='/temp/image/2023/y-Month-1/1615669639639359488_0.jpg' width='450' height='500'><br><br>北京时间2023-01-18T09:17:24Z<br>看着跟AI觉醒了似的 https://t.co/vkIzwf1oj7<br><img src='/temp/image/2023/y-Month-1/1615518687980576769_0.jpg' width='450' height='500'><br><br>北京时间2023-01-18T20:11:45Z<br>网友投稿
+一名小红书网友称，因为自己的名字里包含了敏感词，导致无法预约毛主席纪念馆。
+真是每天一个敏感词小知识 https://t.co/ACv3pAkoMv<br><img src='/temp/image/2023/y-Month-1/1615683359690350594_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1615683359690350594_1.jpg' width='450' height='500'><br><br>
