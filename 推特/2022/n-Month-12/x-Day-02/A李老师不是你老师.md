@@ -1,1 +1,1 @@
-北京时间2022-12-02T20:59:10Z<br>此刻 上海某小区， 民众下楼要求解封 https://t.co/nWSCjaKXtp<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598663061677608961_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T23:43:23Z<br>北京 今晚多处核酸亭正在被拆除 https://t.co/NiyXeOyRrW<br><img src='/temp/image/2022/n-Month-12/1598704387920216064_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598704387920216064_1.jpg' width='450' height='500'><br><br>
