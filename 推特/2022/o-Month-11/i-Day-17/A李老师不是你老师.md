@@ -1,1 +1,1 @@
-北京时间2022-11-17T07:21:31Z<br>https://t.co/fZa9tSCbOc<br><img src='/temp/image/2022/o-Month-11/1593021474449002496_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-17T06:33:00Z<br>长葛市号召退伍军人响应富士康招工 https://t.co/W7bTdCgx6o<br><img src='/temp/image/2022/o-Month-11/1593009265978941441_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1593009265978941441_1.jpg' width='450' height='500'><br><br>
