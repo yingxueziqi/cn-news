@@ -1,1 +1,2 @@
-北京时间2022-12-21T00:52:49Z<br>https://t.co/uSndgDAjZT<br><img src='/temp/image/2022/n-Month-12/1605244842988036097_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1605244842988036097_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1605244842988036097_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1605244842988036097_3.jpg' width='450' height='500'><br><br>
+北京时间2022-12-21T02:29:01Z<br>@NiKiTa_32156 这个视频其实让我觉得有些恐怖，如果看过明星的见面会，肯定知道我是什么意思
+当一个可以让孩子们激动的哭出来的领袖抱住了其中的一个孩子，周围的孩子却依然保持着一种极高的秩序性，不敢触碰，不敢僭越，激动却克制地围绕在领袖的周围<br><br><br>
