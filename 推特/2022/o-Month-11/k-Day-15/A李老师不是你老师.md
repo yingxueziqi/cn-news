@@ -1,2 +1,1 @@
-北京时间2022-11-15T00:24:56Z<br>今晚海珠区因疫情原因，部分城中村发生暴动
-视频中，人群一边欢呼鼓掌一边推到隔离围栏。有一个人冲进区政府，大量民众距离在楼顶。同时亦有民众拍到警车疾驰奔赴现场。 https://t.co/iBUudsdqHT<br><img src='/temp/video/2022/o-Month-11/k-Day-15/whyyoutouzhele/1592191862248726528_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-15T01:31:31Z<br>网友投稿了广州海珠区暴动事发之前的视频，有一名领导与民众就物资问题交涉未果，随后民众一拥而上… https://t.co/iRj3pPgvNQ<br><img src='/temp/video/2022/o-Month-11/k-Day-15/whyyoutouzhele/1592208621336956928_0.jpg' width='450' height='500'><img src='/temp/video/2022/o-Month-11/k-Day-15/whyyoutouzhele/1592208621336956928_1.jpg' width='450' height='500'><br><br>
