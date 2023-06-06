@@ -1,1 +1,5 @@
-北京时间2022-12-14T07:10:24Z<br>网友投稿 在微博上，有一个关于核酸检测公司将何去何从的话题，其中有很多曾经的大白讲述自己此刻的心情。 https://t.co/2vvYh231Cf<br><img src='/temp/image/2022/n-Month-12/1602803152289468418_0.jpg' width='450' height='500'><br><br>北京时间2022-12-14T06:01:07Z<br>网友投稿，求证北京的朋友 https://t.co/eTfqXpRYP4<br><img src='/temp/image/2022/n-Month-12/1602785714738962435_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-14T01:47:49Z<br>网友投稿
+13日晚，徐州徐医附院规培生抗议
+据悉，徐医附院的规培生不被科室发放应有的防护措施，医院各科室不予发放N95/KN95口罩，并要求他们必须在岗
+在前一天的抗议中，医院只允许研究生放假，而并没有允许规培生放假。
+导致今天规培生们继续抗议。 https://t.co/UXwkDghEN6<br><img src='/temp/video/2022/n-Month-12/l-Day-14/whyyoutouzhele/1602721969740324865_0.jpg' width='450' height='500'><br><br>
