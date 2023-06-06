@@ -1,2 +1,1 @@
-北京时间2023-03-29T01:00:01Z<br>网友投稿
-如何评价TikTok CEO 周受资在3月24日美国国会听证会上的表现？ https://t.co/OQK7XxOIrl<br><img src='/temp/image/2023/w-Month-3/1640760665970442241_0.jpg' width='450' height='500'><br><br>
+北京时间2023-03-29T05:47:49Z<br>@PianistHan @Nailo0628 啊？双标怪不仅顾左右而言他，连自己说的话都不承认啦？那算了，不讨论了。 https://t.co/djJFayrIQm<br><img src='/temp/image/2023/w-Month-3/1640833096156151812_0.jpg' width='450' height='500'><br><br>
