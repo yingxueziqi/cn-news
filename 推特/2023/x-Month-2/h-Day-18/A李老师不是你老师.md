@@ -1,1 +1,2 @@
-北京时间2023-02-18T01:16:25Z<br>https://t.co/4f1XDcBwAj<br><img src='/temp/image/2023/x-Month-2/1626631667837202434_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626631667837202434_1.jpg' width='450' height='500'><br><br>
+北京时间2023-02-18T04:24:28Z<br>网友投稿
+原来布达拉宫广场是禁止拉横幅的 https://t.co/EnEFohTvvi<br><img src='/temp/image/2023/x-Month-2/1626678991284326400_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626678991284326400_1.jpg' width='450' height='500'><br><br>
