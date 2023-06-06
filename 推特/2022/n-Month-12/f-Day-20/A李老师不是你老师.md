@@ -1,5 +1,1 @@
-北京时间2022-12-20T01:58:32Z<br>网友投稿
-胡锡进今天的最新文章
-在文中，除了日常叼盘之外，也出现了一些暴言
-比如他说国家在防疫这件事上最终选择了实事求是，被评论反问那之前选择了什么？
-博文不到一小时就被删除了。 https://t.co/M57EqM6svh<br><img src='/temp/image/2022/n-Month-12/1604898993649356801_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604898993649356801_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604898993649356801_2.jpg' width='450' height='500'><br><br>北京时间2022-12-20T06:40:27Z<br>https://t.co/t2KyZTzFmh<br><img src='/temp/image/2022/n-Month-12/1604969942834728960_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604969942834728960_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1604969942834728960_2.jpg' width='450' height='500'><br><br>北京时间2022-12-20T03:43:24Z<br>https://t.co/AK5IP8eE4i<br><img src='/temp/image/2022/n-Month-12/1604925385384271892_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-20T07:44:31Z<br>似乎这些天没有出现类似20年初那种世界各地的华侨往国内大量援助物资的新闻了<br><br><br>
