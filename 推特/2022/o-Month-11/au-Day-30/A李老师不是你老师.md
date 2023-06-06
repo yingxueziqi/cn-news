@@ -1,2 +1,4 @@
-北京时间2022-11-30T02:20:01Z<br>广州海珠区后滘 约29日晚上11点左右 发生群体事件
-目前具体原因不详。 https://t.co/A9m0gKoVge<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597656642803273729_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-30T02:39:32Z<br>哈佛大学 https://t.co/lvcO5It9IQ<br><img src='/temp/image/2022/o-Month-11/1597661555167965184_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T02:58:06Z<br>广州海珠区后滘 补充视频
+
+民众向警方投掷玻璃瓶 https://t.co/lRvmHBwUq5<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597666227371278336_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T04:31:10Z<br>一名微博网友拍摄的30日凌晨四点的广州出城车队 https://t.co/2a3qJM7RTB<br><img src='/temp/image/2022/o-Month-11/1597689649039671296_0.jpg' width='450' height='500'><br><br>北京时间2022-11-30T05:54:52Z<br>微博网友发布 11月30日晚凌晨4点的广州南站
+大量旅客滞留在车站周围 https://t.co/MqNcZycEQ0<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597710711622619136_0.jpg' width='450' height='500'><br><br>
