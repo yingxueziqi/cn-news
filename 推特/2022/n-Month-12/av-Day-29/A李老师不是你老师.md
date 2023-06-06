@@ -1,4 +1,4 @@
-北京时间2022-12-29T19:54:30Z<br>网友投稿
-网易新闻今天下午发布了“这是网易新闻的2022年度盘点，和那些妖艳贱货不一样”视频，盘点了唐山打人，东方航空坠机，乌鲁木齐火灾，丰县八孩母亲，上海疫情期间求助电话等事件
-目前已经限制点赞（不显示点赞数） https://t.co/WBSsPB5hTQ<br><img src='/temp/image/2022/n-Month-12/1608431262817222660_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608431262817222660_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608431262817222660_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608431262817222660_3.jpg' width='450' height='500'><br><br>北京时间2022-12-29T20:51:28Z<br>网易新闻2022年度事件盘点
-幻想星辰大海不如活在当下 https://t.co/g1kkfsWC3x<br><img src='/temp/video/2022/n-Month-12/av-Day-29/whyyoutouzhele/1608445597194878979_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-29T19:59:49Z<br>网友投稿
+今天，南阳一中一名高中生因抗议河南高中强制复课而跳楼。
+此前，河南强制要求学生复课，引发学生们对于健康的担忧。 https://t.co/rSpnnZMWpx<br><img src='/temp/image/2022/n-Month-12/1608432597369249792_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608432597369249792_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608432597369249792_2.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1608432597369249792_3.jpg' width='450' height='500'><br><br>北京时间2022-12-29T20:45:27Z<br>网友投稿
+网传华为一名女员工顶着新冠加班最终导致猝死。 https://t.co/a2BCnvulbp<br><img src='/temp/image/2022/n-Month-12/1608444083713753088_0.jpg' width='450' height='500'><br><br>
