@@ -1,2 +1,5 @@
-北京时间2022-11-01T18:21:10Z<br>兰州，上西园。一个小孩需要抢救，但是社区联系不上，没让出，三个小时后小孩没了呼吸
-“老人小孩怎么办” https://t.co/hMtiFSMgvH<br><img src='/temp/image/2022/o-Month-11/1587389275619971072_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_3.jpg' width='450' height='500'><br><br>
+北京时间2022-11-01T18:08:05Z<br>上面领导今天来视察，下午通知商场开门，让居民进去买东西。
+结果领导刚一走，买东西买到一半不让结账，让大家赶紧回家。 https://t.co/7hIlX8wopP<br><img src='/temp/video/2022/o-Month-11/y-Day-01/whyyoutouzhele/1587385984869613569_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587385984869613569_0.jpg' width='450' height='500'><br><br>北京时间2022-11-01T18:40:23Z<br>借着这条投稿跟全国各地的警察同志说一声
+我知道最近你们在国内找了很多翻墙的网友问他们认不认识我
+我不在国内，未来也不打算回国，所以这个KPI你们是拿不到的，不用费神了。不如直接对我网络攻击比较实在
+我的所有内容都来自于全国各地网友给我的投稿，这就是人民的处境和他们的声音，希望你们听一听 https://t.co/urEeLKTNSL<br><img src='/temp/image/2022/o-Month-11/1587394112000561152_0.jpg' width='450' height='500'><br><br>
