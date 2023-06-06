@@ -1,3 +1,5 @@
-北京时间2022-11-21T00:30:55Z<br>网友投稿
-在QQ空间看到有人发出来的提问。下面讨论了很多完全没有最优解…
-世纪难题也与时俱进了，我记得几年前还是如果你在街上被几个男人拖走，拖走你的人对周围人说你是他媳妇，这时候你该怎么办 https://t.co/fEWcMdCRrd<br><img src='/temp/image/2022/o-Month-11/1594367697277550598_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-21T02:28:52Z<br>https://t.co/9BOVHkqixd<br><img src='/temp/image/2022/o-Month-11/1594397381306765314_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T05:46:56Z<br>粉红暴论：现在大家因为疫情这么痛苦，就是因为大家都在体制外。
+如果大家都在体制内，不愁吃喝，一隔离连班都不用上了，更舒服了😅
+这人是土里蹦出来的吧，爹妈没经历过那个时代？ https://t.co/Z6kQXsJDi7<br><img src='/temp/image/2022/o-Month-11/1594447226096742400_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T00:33:13Z<br>网友投稿，
+我们广州海珠区的高风险地区，看到今天新增的封控的地方，有人被封在公共厕所里。
+我一下子哭了，到底是做错了什么要这样对群众，为什么？下一次会轮到谁？ https://t.co/dmCqSwLVyz<br><img src='/temp/image/2022/o-Month-11/1594368276997472257_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T01:22:23Z<br>只能说老钟人可能不懂病毒，但是肯定懂中国 https://t.co/d0XuJx3okN<br><img src='/temp/image/2022/o-Month-11/1594380648248213506_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594380648248213506_1.jpg' width='450' height='500'><br><br>
