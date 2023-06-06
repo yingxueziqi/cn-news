@@ -1,1 +1,7 @@
-北京时间2022-11-07T21:41:00Z<br>珠海航展 https://t.co/V3D2gc2krK<br><img src='/temp/image/2022/o-Month-11/1589613892896002048_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589613892896002048_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589613892896002048_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589613892896002048_3.jpg' width='450' height='500'><br><br>北京时间2022-11-07T19:58:00Z<br>成长是一种痛 https://t.co/sRcqIjxf2i<br><img src='/temp/image/2022/o-Month-11/1589587971853926400_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589587971853926400_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-07T19:46:00Z<br>网友投稿，
+自己的学习开始宣传自愿献血
+甚至有学校开始强制要求学生献血 https://t.co/BcHicr97nN<br><img src='/temp/image/2022/o-Month-11/1589584951812321281_0.jpg' width='450' height='500'><br><br>北京时间2022-11-07T22:36:47Z<br>另有网友投稿称
+目前朋友圈里流传这个女生本身是一个卖淫女，才因此有录音里陪睡4次的对话。
+但是我目前没有得到任何证据证实她的职业，仅从性感照片我想不足以证明
+同时我觉得这件事的重点不仅仅是要求女子“陪睡”
+而是首先出疆证明码标价，其次即使是“全军覆没”的高风险地区，依然可以对其出售出疆证 https://t.co/7CLNsVKr0y<br><img src='/temp/image/2022/o-Month-11/1589627933324238848_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589627933324238848_1.jpg' width='450' height='500'><br><br>
