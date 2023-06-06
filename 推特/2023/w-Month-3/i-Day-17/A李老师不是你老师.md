@@ -1,3 +1,3 @@
-北京时间2023-03-17T20:47:55Z<br>网友投稿
-据称，一些上海的年轻人做了一件纪念上海封城幸存者的T-shirt出售，16日晚，根据出售记录，购买衣服的人被警察挨个敲门带走，今天白天还在继续搜索购买衣服的人，但是只是把衣服搜走。 https://t.co/xMFxoJLHRX<br><img src='/temp/image/2023/w-Month-3/1636710958218264576_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636710958218264576_1.jpg' width='450' height='500'><br><br>北京时间2023-03-17T09:36:04Z<br>网友投稿
-在湖南台最新的两岸歌曲综艺节目《声声不息·宝岛季》中，在播放歌手艾怡良获金曲奖的片段时，可能是因为台下政治敏感或生活西化的人太多，节目中竟然将台下所有人全部打码 https://t.co/Vcyva41Flk<br><img src='/temp/image/2023/w-Month-3/1636541878836383745_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1636541878836383745_1.jpg' width='450' height='500'><br><br>
+北京时间2023-03-17T21:14:35Z<br>https://t.co/8FxN56qIEv<br><img src='/temp/image/2023/w-Month-3/1636717666776825857_0.jpg' width='450' height='500'><br><br>北京时间2023-03-17T21:11:53Z<br>网友投稿
+17日，四川雅安。有村民称自家两只小狗被多人捕杀并转入袋子带走。
+乡政府工作人员称，因该村发现一例狂犬病，按照规定捕杀所有犬只，且三年内不能养犬。 https://t.co/UuSUKzjpFO<br><img src='/temp/image/2023/w-Month-3/1636716989409288193_0.jpg' width='450' height='500'><br><br>北京时间2023-03-17T09:42:01Z<br>1小时以后，这条微博被屏蔽。 https://t.co/BAWL5dfRFK<br><img src='/temp/image/2023/w-Month-3/1636543377503051776_0.jpg' width='450' height='500'><br><br>北京时间2023-03-17T08:46:56Z<br>@ranrandehuoyan 额<br><br><br>北京时间2023-03-17T08:47:16Z<br>更正，这名推友是一名男生<br><br><br>
