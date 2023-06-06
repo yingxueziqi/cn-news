@@ -1,7 +1,1 @@
-北京时间2023-02-24T18:21:29Z<br>网友投稿
-2月23日，东莞市寮步镇上屯村，因村民得不到应有赔偿，施工方就开始动工，导致村民在施工现场抗议。
-期间民众与警察发生冲突，在抓捕抗议示威者过程中使用雨伞遮挡防止录像拍照。 https://t.co/fzwNXpL5CP<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629063962338762753_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T18:07:51Z<br>网友投稿 
-2月22日晚，深圳龙华汽车站，因为工厂不招人，导致大量外地务工人员滞留在车站外。 https://t.co/nId0UG8uaB<br><img src='/temp/video/2023/x-Month-2/b-Day-24/whyyoutouzhele/1629060531683303424_0.jpg' width='450' height='500'><br><br>北京时间2023-02-24T09:46:38Z<br>澎湃新闻消息，中国外交部网站2月24日发表关于政治解决乌克兰危机的十二条中国立场
-包括尊重各国主权，摒弃冷战思维，停火止战，启动和谈，解决人道危机，维护核安全，推动战后重建等 https://t.co/6s9A9yUG0l<br><img src='/temp/image/2023/x-Month-2/1628934396102209536_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628934396102209536_1.jpg' width='450' height='500'><br><br>北京时间2023-02-24T21:20:16Z<br>网友投稿
-工人日报发文称，现在定论四天工作制更好还为时尚早。
-此文一出立即遭遇群嘲，有网友表示，我国应该先落实五天工作制 https://t.co/K507r034UN<br><img src='/temp/image/2023/x-Month-2/1629108954751008769_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629108954751008769_3.jpg' width='450' height='500'><br><br>
+北京时间2023-02-24T18:08:46Z<br>https://t.co/5esIiUKAxF<br><img src='/temp/image/2023/x-Month-2/1629060760226738177_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1629060760226738177_1.jpg' width='450' height='500'><br><br>北京时间2023-02-24T22:21:41Z<br>@ying32178493 也是一个孩子的五年<br><br><br>
