@@ -1,0 +1,1 @@
+北京时间2022-12-03T01:31:03Z<br>乌鲁木齐的目前情况： https://t.co/et6hBfDyN4<br><img src='/temp/image/2022/n-Month-12/1598731485279703042_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598731485279703042_1.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598731485279703042_2.jpg' width='450' height='500'><br><br>
