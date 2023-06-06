@@ -1,2 +1,4 @@
-北京时间2023-03-15T01:53:00Z<br>网友投稿
-3月14日，重庆巫溪县政府大楼着火 https://t.co/JZlyDtM5bT<br><img src='/temp/image/2023/w-Month-3/1635700571242889226_0.jpg' width='450' height='500'><br><br>
+北京时间2023-03-15T18:43:00Z<br>网友投稿
+今天，一条抖音在墙内热传
+视频记录下了一名男子在讨薪过程中被有关部门批评教育和调解的全过程。 https://t.co/HK34Zzyh7a<br><img src='/temp/video/2023/w-Month-3/k-Day-15/whyyoutouzhele/1635954743553007616_0.jpg' width='450' height='500'><br><br>北京时间2023-03-15T18:26:31Z<br>网友投稿
+3月14日，河南地方官媒发布“河南的春天麦田有多治愈”的视频，结果遭到网友的一片骂声 https://t.co/ZBxgkeH8D9<br><img src='/temp/image/2023/w-Month-3/1635950596774674433_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635950596774674433_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635950596774674433_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1635950596774674433_3.jpg' width='450' height='500'><br><br>
