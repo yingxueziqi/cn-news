@@ -1,2 +1,2 @@
-北京时间2023-01-09T03:10:41Z<br>网友投稿
-因为不能说真话，部级期刊《戏剧与影视评论》编辑部集体辞职 https://t.co/wHPbBYO4Vn<br><img src='/temp/image/2023/y-Month-1/1612164906760945665_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612164906760945665_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612164906760945665_2.jpg' width='450' height='500'><br><br>
+北京时间2023-01-09T05:52:24Z<br>网友投稿
+美团外卖配送端，强制每位配送员查看并考试，其中强调了禁止“非法聚集”、“扬言威胁”，还重申了相关法条。 https://t.co/bkvOhXLAhv<br><img src='/temp/image/2023/y-Month-1/1612205607703937028_0.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612205607703937028_1.jpg' width='450' height='500'><img src='/temp/image/2023/y-Month-1/1612205607703937028_2.jpg' width='450' height='500'><br><br>
