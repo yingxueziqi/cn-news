@@ -1,0 +1,2 @@
+北京时间2022-11-01T18:21:10Z<br>兰州，上西园。一个小孩需要抢救，但是社区联系不上，没让出，三个小时后小孩没了呼吸
+“老人小孩怎么办” https://t.co/hMtiFSMgvH<br><img src='/temp/image/2022/o-Month-11/1587389275619971072_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587389275619971072_3.jpg' width='450' height='500'><br><br>
