@@ -1,2 +1,3 @@
-北京时间2022-11-02T02:20:20Z<br>有网友提供了一些网评员内部群的信息
-只能说可能是人一旦进入这个行业，就容易把一切都想的跟自己的思想一样简陋。 https://t.co/i628acfZce<br><img src='/temp/image/2022/o-Month-11/1587509863919255553_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-02T01:25:44Z<br>https://t.co/E56ndbDOxf<br><img src='/temp/image/2022/o-Month-11/1587496124339965952_0.jpg' width='450' height='500'><br><br>北京时间2022-11-02T01:40:39Z<br>https://t.co/OAuOuPPvDh<br><img src='/temp/image/2022/o-Month-11/1587499876128104454_0.jpg' width='450' height='500'><br><br>北京时间2022-11-02T05:31:37Z<br>狂 https://t.co/mn2ZIgRDDS<br><img src='/temp/image/2022/o-Month-11/1587558001031929860_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587558001031929860_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1587558001031929860_2.jpg' width='450' height='500'><br><br>北京时间2022-11-02T02:05:02Z<br>我承认我今天在发布这条消息的时候有些冷漠，大抵因为类似的事情看过许多次，内心存在着一些危险的麻木
+刚才收到很多投稿，武警们手持盾牌列队进入小区，着实让我震惊。不知道是什么让他们面对一个三岁的亡魂如此如临大敌——直到我看到兰州人面对呵斥并没有逃跑，冲着盾牌嘲讽怒骂时
+我明白孩子就是底线<br><br><br>
