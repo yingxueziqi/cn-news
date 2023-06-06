@@ -1,5 +1,8 @@
-北京时间2022-11-21T02:28:52Z<br>https://t.co/9BOVHkqixd<br><img src='/temp/image/2022/o-Month-11/1594397381306765314_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T05:46:56Z<br>粉红暴论：现在大家因为疫情这么痛苦，就是因为大家都在体制外。
-如果大家都在体制内，不愁吃喝，一隔离连班都不用上了，更舒服了😅
-这人是土里蹦出来的吧，爹妈没经历过那个时代？ https://t.co/Z6kQXsJDi7<br><img src='/temp/image/2022/o-Month-11/1594447226096742400_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T00:33:13Z<br>网友投稿，
-我们广州海珠区的高风险地区，看到今天新增的封控的地方，有人被封在公共厕所里。
-我一下子哭了，到底是做错了什么要这样对群众，为什么？下一次会轮到谁？ https://t.co/dmCqSwLVyz<br><img src='/temp/image/2022/o-Month-11/1594368276997472257_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T01:22:23Z<br>只能说老钟人可能不懂病毒，但是肯定懂中国 https://t.co/d0XuJx3okN<br><img src='/temp/image/2022/o-Month-11/1594380648248213506_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594380648248213506_1.jpg' width='450' height='500'><br><br>
+北京时间2022-11-21T19:56:32Z<br>“你看那个人，好像一条狗啊”
+
+一名男子因外出而被警察逮捕，期间遭遇了令人愤慨的羞辱。
+在男子完全配合的情况下，警察不断要求该男子变更姿势和位置配合检查，强制把他的双腿分开直至无法站立，然后再将他按在地上，并用膝盖顶住男子的脖子让其无法呼吸
+并问他你为什么出来
+男子艰难地回答“我在吃药.. https://t.co/U1jpFvfWEb<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594661035851796480_0.jpg' width='450' height='500'><br><br>北京时间2022-11-21T19:26:39Z<br>网友投稿
+广州，外国人给露宿街头的人送吃的
+网友：境外势力开始办事了 https://t.co/AqaRhqrSYP<br><img src='/temp/image/2022/o-Month-11/1594653513157677056_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594653513157677056_1.jpg' width='450' height='500'><br><br>北京时间2022-11-21T23:13:30Z<br>《逃》 https://t.co/fH5M6zqGgk<br><img src='/temp/image/2022/o-Month-11/1594710601326100480_0.jpg' width='450' height='500'><br><br>
