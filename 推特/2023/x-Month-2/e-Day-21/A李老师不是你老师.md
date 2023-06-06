@@ -1,5 +1,5 @@
-北京时间2023-02-21T21:25:50Z<br>网友投稿
-宁波中通快递分拣中心，一60岁老人在凌晨三点时猝死在工作岗位上。21日，宁波人社区表示，60周岁本身不属于劳动者范畴，如果没有缴纳工伤保险，就不能认定为工伤。
-一天前，官媒曾刊文促进低龄老人再就业，实现“银发红利”。 https://t.co/lEiap74TWC<br><img src='/temp/image/2023/x-Month-2/1628023192466997250_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1628023192466997250_1.jpg' width='450' height='500'><br><br>北京时间2023-02-21T21:29:20Z<br>网友投稿
-央视新闻消息，2月17日，柳州一木板厂发生了一起氯气泄露事件
-据悉，发生泄露的铁罐系被盗取。 https://t.co/WhGZ7HVwX5<br><img src='/temp/video/2023/x-Month-2/e-Day-21/whyyoutouzhele/1628024073107152898_0.jpg' width='450' height='500'><br><br>
+北京时间2023-02-21T22:28:40Z<br>网友投稿
+2月21日11时许，安徽绩溪一杀虫剂工厂发生火灾
+目前大火已被扑灭，无人员伤亡。
+生态环境局表示，不确定气体是否有毒。 https://t.co/oWKgKESD2T<br><img src='/temp/video/2023/x-Month-2/e-Day-21/whyyoutouzhele/1628039001956286465_0.jpg' width='450' height='500'><br><br>北京时间2023-02-21T21:11:52Z<br>俄乌战争一周年之际，普京发表国情咨文，重申是乌克兰挑起战争，而俄方在用武力制止 https://t.co/0qxUFXPCbp<br><img src='/temp/image/2023/x-Month-2/1628019674846732294_0.jpg' width='450' height='500'><br><br>北京时间2023-02-21T22:43:02Z<br>网友投稿
+河南郑州，建业花园里小区，推出了“0首付，0月供，你买房，我还贷”项目。 https://t.co/ID4OhvDLQJ<br><img src='/temp/image/2023/x-Month-2/1628042616590807043_0.jpg' width='450' height='500'><br><br>
