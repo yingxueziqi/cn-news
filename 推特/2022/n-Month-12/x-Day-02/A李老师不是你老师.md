@@ -1,3 +1,3 @@
-北京时间2022-12-02T20:39:51Z<br>此刻 东京池袋地铁站 ，民众举行悼念活动
-现场没有口号，非常安静。 https://t.co/p01Wl2TTEI<br><img src='/temp/image/2022/n-Month-12/1598658200089288704_0.jpg' width='450' height='500'><br><br>北京时间2022-12-02T23:37:24Z<br>此刻 北京 亮马桥附近
-道路上依然每隔50米一辆警车。 https://t.co/ZIUZ9UucQF<br><img src='/temp/video/2022/n-Month-12/x-Day-02/whyyoutouzhele/1598702883771482114_0.jpg' width='450' height='500'><br><br>
+北京时间2022-12-02T17:10:10Z<br>12月2日 广州越秀公安的微博突然发布“许家印”三个字，随后引发外界猜想，有传言称其跳楼。
+之后有消息称，下午一点半，许家印在恒大工作群中发布了语音消息，证实其无恙。
+目前没有更多的消息。 https://t.co/uEaUHrrdh9<br><img src='/temp/image/2022/n-Month-12/1598605432020471808_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1598605432020471808_1.jpg' width='450' height='500'><br><br>
