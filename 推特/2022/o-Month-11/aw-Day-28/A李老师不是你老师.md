@@ -1,1 +1,3 @@
-北京时间2022-11-28T23:50:56Z<br>今天下午5点50分左右 湖南大学东方红广场有人举白纸抗议 五分钟后被现场安保人员带离。 https://t.co/mGctdIZwt5<br><img src='/temp/image/2022/o-Month-11/1597256737564037121_0.jpg' width='450' height='500'><br><br>
+北京时间2022-11-28T23:29:18Z<br>杭州 in77 今晚 时间未知
+一个民众与现场的保安及特警交谈
+安保说自己一天200多 https://t.co/arWLRcKRbz<br><img src='/temp/video/2022/o-Month-11/aw-Day-28/whyyoutouzhele/1597251293852053504_0.jpg' width='450' height='500'><br><br>
