@@ -1,4 +1,15 @@
-李老师不是你老师 北京时间 2022-11-09T07:59:33Z 1590131942783344642<br>许昌核酸机构因被政府拖欠回款，宣布罢工 https://t.co/TjmhYu7Hya<br><img src='/temp/image/2022/o-Month-11/1590131942783344642_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T04:49:20Z 1590084073401159682<br>重庆杨家坪封控小区
+李老师不是你老师 北京时间 2022-11-09T20:54:19Z 1590326919505281026<br>喜欢一些纪实文学
+3月16日
+“看看香港放开一天死多少人”
+4月9日  
+“上海市委应该给广州市委磕头”
+5月8日  
+“看看国外每天几百几百的去世，你们真的要全部躺平吗？”
+11月9日  
+“我宁愿病死也不想饿死穷死，这个病跟感冒一样，别折腾了...” https://t.co/CHEOnCuvVF<br><img src='/temp/image/2022/o-Month-11/1590326919505281026_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590326919505281026_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590326919505281026_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590326919505281026_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T18:42:15Z 1590293685295775745<br>有网友称Apple在iOS16.2Beta2针对国行版本限制了AirDrop对所有人开放的时长，现在最多开启10分钟了
+应该是因为人们用AirDrop传播四通桥事件 https://t.co/C24LzjcGUw<br><img src='/temp/image/2022/o-Month-11/1590293685295775745_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T19:52:44Z 1590311421686214660<br>教育部设立高校疫情投诉平台
+吉林某大学生真跑去上面投诉学校了
+然后就被学校找去谈话并且发了道歉信🤣 https://t.co/aYmDL3Pvjz<br><img src='/temp/image/2022/o-Month-11/1590311421686214660_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590311421686214660_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590311421686214660_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590311421686214660_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T22:01:00Z 1590343701682872320<br>福州封控，同小区半夜凌晨三点，这位女士因为外卖被偷走在楼下崩溃了，哭喊了好几个小时。 https://t.co/nS8vTglSdF<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590343701682872320_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T10:17:00Z 1590166533921193984<br>结局怎么和我想的不一样 https://t.co/5Cpk1yTaAt<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590166533921193984_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T07:59:33Z 1590131942783344642<br>许昌核酸机构因被政府拖欠回款，宣布罢工 https://t.co/TjmhYu7Hya<br><img src='/temp/image/2022/o-Month-11/1590131942783344642_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T04:49:20Z 1590084073401159682<br>重庆杨家坪封控小区
 东原九城时光高层发生失火导致一名住户跳楼 https://t.co/xPKOsuPhjd<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590084073401159682_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T02:27:01Z 1590048258608730113<br>秦皇岛市海港区，
 在封控的第9天，居民小区内抗议的群众高喊我们要活着，我们要解封，推翻了铁皮的封挡，现场警察持枪出动，最后市政府在压力下同意解封 https://t.co/0Jx5fmltsW<br><img src='/temp/image/2022/o-Month-11/1590048258608730113_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590048258608730113_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590048258608730113_2.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T03:56:54Z 1590070880063082497<br>不知道进去吃饭能不能续一秒 https://t.co/I1pVxnonPN<br><img src='/temp/image/2022/o-Month-11/1590070880063082497_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T02:23:20Z 1590047330983899138<br>一个女孩投稿自己今晚的经历
 只是因为下楼吃了点东西，
