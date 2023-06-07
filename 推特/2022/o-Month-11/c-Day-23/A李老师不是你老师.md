@@ -1,4 +1,9 @@
-李老师不是你老师 北京时间 2022-11-23T21:48:04Z 1595413876732006406<br>富士康2.0事件后续
+李老师不是你老师 北京时间 2022-11-23T20:27:15Z 1595393541072715777<br>最新视频
+富士康大门口，领导保证，明天上车返乡前一万块钱肯定到账，希望大家先回宿舍。
+背后疑似是穿了防弹背心的武警。 https://t.co/eDhu1Eb8LL<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595393541072715777_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T17:29:47Z 1595348877061902336<br>微博上网友们对富士康的讨论 https://t.co/53v8gSxtmc<br><img src='/temp/image/2022/o-Month-11/1595348877061902336_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1595348877061902336_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1595348877061902336_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1595348877061902336_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T16:06:40Z 1595327963649687552<br>继续跟进  接上个视频
+根据网友投稿的时间线，在与警察发生冲突后，员工们再次折返回园区，更多的员工高喊着“打倒富士康”“干掉富士康”走在园区内 https://t.co/JUckAqkb7L<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595327963649687552_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T19:15:51Z 1595375573026611200<br>网友投稿
+视频显示，有关方面提出针对河南人的新解决方案：一人一万，省内拉走免费隔离，七点楼下集合，河南人签字拿钱走人。 https://t.co/xVmn8fICuq<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595375573026611200_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T20:01:16Z 1595387000365924354<br>有富士康员工开直播讲诉事件过程
+白天抓了40人左右 https://t.co/mX1WajqMCi<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595387000365924354_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T21:48:04Z 1595413876732006406<br>富士康2.0事件后续
 有指挥部领导向工人保证
 明天会给工人们补偿一万块钱。
 扫码填资料，之后上车给8000，到家给2000。 https://t.co/vd5ZElBSsW<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595413876732006406_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T20:25:14Z 1595393031968096260<br>最新视频，
