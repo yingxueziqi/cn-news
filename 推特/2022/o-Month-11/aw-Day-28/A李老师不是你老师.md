@@ -1,0 +1,3 @@
+李老师不是你老师 北京时间 2022-11-28T22:20:08Z 1597233885053857798<br>杭州 in77 民众要求放人 
+现场哭声一片
+被抓的人大喊 救救我 https://t.co/7nnCzvRgJR<br><img src='/temp/video/2022/o-Month-11/aw-Day-28/whyyoutouzhele/1597233885053857798_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-28T23:50:56Z 1597256737564037121<br>今天下午5点50分左右 湖南大学东方红广场有人举白纸抗议 五分钟后被现场安保人员带离。 https://t.co/mGctdIZwt5<br><img src='/temp/image/2022/o-Month-11/1597256737564037121_0.jpg' width='470' height='500'><br><br>
