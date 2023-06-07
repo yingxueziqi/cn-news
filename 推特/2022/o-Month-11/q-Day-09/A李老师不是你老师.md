@@ -1,3 +1,6 @@
-李老师不是你老师 北京时间 2022-11-09T03:14:31Z 1590060212324421632<br>温州城管驱赶残疾人表演艺术团
+李老师不是你老师 北京时间 2022-11-09T03:56:54Z 1590070880063082497<br>不知道进去吃饭能不能续一秒 https://t.co/I1pVxnonPN<br><img src='/temp/image/2022/o-Month-11/1590070880063082497_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T02:23:20Z 1590047330983899138<br>一个女孩投稿自己今晚的经历
+只是因为下楼吃了点东西，
+结果因为没做核酸进不去小区，还被门口的防疫人员教训
+接下来，奔走在城市的各个做核酸的地方，找了警察，在一个个的互相推诿之间不知所措地溜达在城市里，最终终于在凌晨一点，一个心善的看门老大爷让她回到了家..... https://t.co/SgPd72deyz<br><img src='/temp/image/2022/o-Month-11/1590047330983899138_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590047330983899138_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590047330983899138_2.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T03:14:31Z 1590060212324421632<br>温州城管驱赶残疾人表演艺术团
 这位大姐说的太好了 https://t.co/MufR8HTn1j<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590060212324421632_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T01:57:34Z 1590040847751708672<br>新疆库尔勒，自己的爸爸进入当地隔离点后死亡。
 目前死因正在调查。 https://t.co/PR9giYltAT<br><img src='/temp/image/2022/o-Month-11/1590040847751708672_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_3.jpg' width='470' height='500'><br><br>
