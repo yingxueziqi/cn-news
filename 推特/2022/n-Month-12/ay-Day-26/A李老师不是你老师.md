@@ -1,0 +1,8 @@
+李老师不是你老师 北京时间 2022-12-26T04:45:25Z 1607115318731722754<br>网友投稿 https://t.co/UGTNTWzLGG<br><img src='/temp/image/2022/n-Month-12/1607115318731722754_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T04:33:43Z 1607112373013286914<br>彷佛无法回答的惊天一问 https://t.co/JX1vRgEjlx<br><img src='/temp/image/2022/n-Month-12/1607112373013286914_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T02:29:51Z 1607081204628553729<br>@Tguo1010 所以到底要咋样才能满意呢
+不加说我是大外宣庆祝毛泽东生日，加了又说我暗示奥米克荣很危险
+以后我就打几个______想说啥你们自己填吧<br><br><br>李老师不是你老师 北京时间 2022-12-26T02:20:45Z 1607078911929901061<br>网友投稿
+25日晚，大量民众聚集在湖南湘潭韶山红太阳人民广场，纪念毛泽东诞辰。
+似乎这一刻撞门和病毒都不重要了。 https://t.co/pCxFBAcF52<br><img src='/temp/video/2022/n-Month-12/ay-Day-26/whyyoutouzhele/1607078911929901061_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T01:39:52Z 1607068622211657729<br>网友补充 https://t.co/JPpbcN5jUG<br><img src='/temp/image/2022/n-Month-12/1607068622211657729_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T01:39:28Z 1607068524379516928<br>网友投稿
+12月25日的北京朝阳医院 https://t.co/syeDGv8zD3<br><img src='/temp/video/2022/n-Month-12/ay-Day-26/whyyoutouzhele/1607068524379516928_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T01:22:41Z 1607064301663125504<br>有多名网友投稿
+目前网传北京将紧急部署辉瑞Paxlovid特效药配送至各社区卫生服务中心 https://t.co/mG26DQX0Ql<br><img src='/temp/image/2022/n-Month-12/1607064301663125504_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2022-12-26T01:19:12Z 1607063424575455233<br>一张让很多人犯难的图
+在这张图里，上帝之鹰和胡锡进，谁才是粉红谁才是反贼？ https://t.co/Qgroz8QA17<br><img src='/temp/image/2022/n-Month-12/1607063424575455233_0.jpg' width='480' height='500'><br><br>
