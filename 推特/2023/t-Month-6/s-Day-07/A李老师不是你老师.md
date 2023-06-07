@@ -1,4 +1,4 @@
-A李老师不是你老师 北京时间 2023-06-07T22:23:20Z 1666450774740594690<br>网友投稿
+A李老师不是你老师 北京时间 2023-06-07T20:59:24Z 1666429651030274049<br>相关补充 https://t.co/FDe7gYDEuu<br><img src='/temp/image/2023/t-Month-6/1666429651030274049_0.jpg' width='480' height='500'><img src='/temp/image/2023/t-Month-6/1666429651030274049_1.jpg' width='480' height='500'><img src='/temp/image/2023/t-Month-6/1666429651030274049_2.jpg' width='480' height='500'><br><br>A李老师不是你老师 北京时间 2023-06-07T22:23:20Z 1666450774740594690<br>网友投稿
 6月6日晚，香港。
 泰国艺人BILLKIN &amp; PP KRIT（BKPP）见面会现场，因不满现场主持人将“中国”“香港”“台湾”并列称呼，引发了现场粉丝质疑其辱华，在台下齐喊“ONE CHINA”、“CHINA CHINA CHINA”。 https://t.co/Hplt1RHUnc<br><img src='/temp/video/2023/t-Month-6/s-Day-07/whyyoutouzhele/1666450774740594690_0.jpg' width='480' height='500'><br><br>A李老师不是你老师 北京时间 2023-06-07T22:24:23Z 1666451039157997568<br>补充 https://t.co/WnqlJWDtcn<br><img src='/temp/image/2023/t-Month-6/1666451039157997568_0.jpg' width='480' height='500'><br><br>A李老师不是你老师 北京时间 2023-06-07T22:45:20Z 1666456311070900226<br>网友投稿
 近日，一则“外国人走了！上海复兴中路房租暴跌！”的视频在墙内一度高达1500万次播放。
