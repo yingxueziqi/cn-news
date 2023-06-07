@@ -1,1 +1,0 @@
-北京时间2022-11-28T22:47:00Z<br>22:30左右银泰in77萨莉亚地上入口区域一位带花静坐的女士被包围。周围被隔开 https://t.co/iCAD450Txx<br><img src='/temp/image/2022/o-Month-11/1597240649161797632_0.jpg' width='450' height='500'><br><br>

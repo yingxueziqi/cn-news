@@ -1,4 +1,0 @@
-北京时间2022-11-20T19:31:00Z<br>成都精准防控：有的地方在静默，有的地方在跑马拉松 https://t.co/ezPvJdLEEX<br><img src='/temp/image/2022/o-Month-11/1594292219372244992_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1594292219372244992_1.jpg' width='450' height='500'><br><br>北京时间2022-11-20T21:45:17Z<br>昨晚睡觉的时候突然想起几年前在微博上看到的一个帖子，博主是一个搞化学的，当年厦门反PX游行的时候他觉得老百姓也太傻逼了，一点科学常识都没有。
-直到后来搬去漳州的PX工厂发生了两次爆炸，他才明白
-老百姓也许不懂化学，但是肯定懂中国。
-其实放在今天这句话也一样适用。<br><br><br>北京时间2022-11-20T20:47:44Z<br>https://t.co/ikJhvG6ZDV<br><img src='/temp/image/2022/o-Month-11/1594311531520475136_0.jpg' width='450' height='500'><br><br>北京时间2022-11-20T19:50:39Z<br>武汉也静默了，难道“躺平变法”宣告失败？🧐 https://t.co/8par6l2b8p<br><img src='/temp/image/2022/o-Month-11/1594297165756928000_0.jpg' width='450' height='500'><br><br>北京时间2022-11-20T18:47:40Z<br>https://t.co/8F9vMShlkR<br><img src='/temp/image/2022/o-Month-11/1594281314315911168_0.jpg' width='450' height='500'><br><br>

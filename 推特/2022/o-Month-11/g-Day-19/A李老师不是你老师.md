@@ -1,3 +1,0 @@
-北京时间2022-11-19T21:18:38Z<br>网友投稿
-有人提议在香港给付国豪树一尊雕像 https://t.co/7DMsaAm1Aq<br><img src='/temp/image/2022/o-Month-11/1593956921039413250_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T20:36:41Z<br>网友投稿
-11月19日的全国疫情数据 https://t.co/SPZTrQUZHD<br><img src='/temp/image/2022/o-Month-11/1593946362093228034_0.jpg' width='450' height='500'><br><br>北京时间2022-11-19T22:15:13Z<br>心情： https://t.co/AffQJQ0mpl<br><img src='/temp/image/2022/o-Month-11/1593971158264717312_0.jpg' width='450' height='500'><br><br>
