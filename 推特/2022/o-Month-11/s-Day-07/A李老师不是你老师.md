@@ -1,5 +1,1 @@
-北京时间2022-11-07T19:07:40Z<br>中公教育疑似出现资金链断裂
-近年来考公人数的节节攀高，作为中国最大的考公培训机构，中公教育亦是赚的盆满钵满。并推出了“协议班”模式，即所谓的不过包退费。
-然而最近很多签了协议的学生发现没考上却退不了款。在经过了漫长的维权后
-最近中公来个分期付款，退款分十期，大家终于忍不住了去线下吵。 https://t.co/DfWyL8BAT6<br><img src='/temp/video/2022/o-Month-11/s-Day-07/whyyoutouzhele/1589575307916619776_0.jpg' width='450' height='500'><br><br>北京时间2022-11-07T19:36:00Z<br>https://t.co/mXSLcBGvkR<br><img src='/temp/image/2022/o-Month-11/1589582435351568384_0.jpg' width='450' height='500'><br><br>北京时间2022-11-07T18:47:58Z<br>为了表达自己的想法
-网友们开始使用方言规避审查 https://t.co/7dNuEtnKuL<br><img src='/temp/image/2022/o-Month-11/1589570346369560577_0.jpg' width='450' height='500'><br><br>
+李老师不是你老师 北京时间 2022-11-07T01:59:16Z 1589316501768896513<br>微博热搜又开始赛博游行了。起因大致是郑州一书记在发布会上提到因为疫情自己错过女儿十八岁成人礼。大量网友带话题评价此事，目前已有两个相关词条 https://t.co/WhFQSvFClG<br><img src='/temp/image/2022/o-Month-11/1589316501768896513_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589316501768896513_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589316501768896513_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1589316501768896513_3.jpg' width='450' height='500'><br><br>
