@@ -1,19 +1,7 @@
-北京时间2023-04-05T18:35:13Z<br>中国电科今天发文，称加班员工非集团公司员工。
-引发网友对“编制”和“非编制”的讨论
-有网友说“中国的劳动法形同虚设”
-还有网友说“我们都是被工会抛弃的编制外人员” https://t.co/dYLKrG9BqI<br><img src='/temp/image/2023/v-Month-4/1643562931001458690_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643562931001458690_3.jpg' width='450' height='500'><br><br>北京时间2023-04-05T18:26:57Z<br>网友投稿
-4月5日 重庆鱼洞附近俩男子当街互殴其中一男子持刀捅另一名男子数刀脖颈 具体起因不详 https://t.co/6Il19gzNl2<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643560852128243713_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T18:23:11Z<br>多地学生投稿称，清明节被学校组织要求进行“网上扫墓” https://t.co/4nUR7svxlC<br><img src='/temp/image/2023/v-Month-4/1643559904894935040_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643559904894935040_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643559904894935040_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643559904894935040_3.jpg' width='450' height='500'><br><br>北京时间2023-04-05T18:16:23Z<br>网友投稿
-4月4日，共青团中央知乎账号引用日本动漫《JOJO的奇妙冒险》中的台词，引发群嘲 https://t.co/k1ByROoLtd<br><img src='/temp/image/2023/v-Month-4/1643558192046112768_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643558192046112768_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643558192046112768_2.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643558192046112768_3.jpg' width='450' height='500'><br><br>北京时间2023-04-05T18:01:58Z<br>4月5日,浙江杭州 
-一商贩因为城管要拖走他的板栗车，在大街上脱光衣服抗议。 https://t.co/ydeW4OoGhs<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643554565726281728_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T17:51:16Z<br>后续补充
-死者为北京商贸学校学生，北京商贸学校针对事件进行了说明 https://t.co/gN3tIURAZY<br><img src='/temp/image/2023/v-Month-4/1643551869417975810_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T08:46:28Z<br>网友投稿
-刚刚，北京工人体育馆附近发生了一起杀人案。
-一群青年疑似因醉酒后产生矛盾扭打在一起。争执中，一白衣男子手持碎酒瓶捅破了一蓝衣男子的喉咙（14秒处），造成蓝衣男子死亡。 https://t.co/HCZL6mO1gY<br><img src='/temp/video/2023/v-Month-4/u-Day-05/whyyoutouzhele/1643414766512160769_0.jpg' width='450' height='500'><br><br>北京时间2023-04-05T08:02:50Z<br>网友投稿
-北京北京中关村信息路上地五街路口附近
-疑似一名程序员在给ChatGPT烧纸。 https://t.co/Lux8ySwrzV<br><img src='/temp/image/2023/v-Month-4/1643403787699101698_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643403787699101698_1.jpg' width='450' height='500'><br><br>北京时间2023-04-05T05:50:41Z<br>网友投稿
+李老师不是你老师 北京时间 2023-04-05T06:05:51Z 1643374348584058880<br>@chemhack 谢谢你提供消息，我刚刚看到。
+我已经联系了和我对接的PR，相信对方很快就可以给我回复。
+需要补充的是，对方在3号提出希望我删除推文，但是我刚才才看见，所以做了删除处理。而在这之后我才刷到你的推文。
+所以我删除推文并不是因为你的这篇推文导致的。<br><br><br>李老师不是你老师 北京时间 2023-04-05T05:50:41Z 1643370529363984385<br>网友投稿
 微博上一名博主经过测试发现，原本被微博屏蔽的词汇，只要在前面加上“美国”就可以显示出来。
 随后网友们纷纷开始测试
-（注意图中划横线的部分仅有博主自己可见，在读者视角是看不见的，但是在前面加了美国就可以显示出来被所有人可见） https://t.co/yzCQC7F19d<br><img src='/temp/image/2023/v-Month-4/1643370529363984385_0.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_1.jpg' width='450' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_2.jpg' width='450' height='500'><br><br>北京时间2023-04-05T05:35:33Z<br>RT @Jeff23Wang: 正值上海封城一周年，这是首位以真名、露脸接受采访的白纸运动参与者。
-
-他讲述了11月27日这天上海乌鲁木齐中路发生的事情。有很多惊心动魄的细节！
-
- https://t.co/IWNKCwurt7<br><br><br>
+（注意图中划横线的部分仅有博主自己可见，在读者视角是看不见的，但是在前面加了美国就可以显示出来被所有人可见） https://t.co/yzCQC7F19d<br><img src='/temp/image/2023/v-Month-4/1643370529363984385_0.jpg' width='480' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_1.jpg' width='480' height='500'><img src='/temp/image/2023/v-Month-4/1643370529363984385_2.jpg' width='480' height='500'><br><br>
