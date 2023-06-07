@@ -1,5 +1,1 @@
-北京时间2023-03-21T20:51:03Z<br>网友投稿
-3月19日，疑似上市公司侨银股份人士怒斥环卫工人的视频在网上引发广泛讨论 https://t.co/DR6JS6lp59<br><img src='/temp/video/2023/w-Month-3/e-Day-21/whyyoutouzhele/1638161295311532032_0.jpg' width='450' height='500'><br><br>北京时间2023-03-21T18:05:36Z<br>网友投稿
-3月21日下午  濮阳市恒大翡翠华庭的业主再次去濮阳市政府门口上访  
-要求解决关于恒大翡翠华庭房屋工程烂尾的问题  业主们已经多次上访  一直没有得到解决 https://t.co/YUXlDMOFpl<br><img src='/temp/video/2023/w-Month-3/e-Day-21/whyyoutouzhele/1638119662108942336_0.jpg' width='450' height='500'><br><br>北京时间2023-03-21T18:13:35Z<br>网友投稿
-3月21日，德阳市世茂璀璨天城烂尾业主在住建局维权 https://t.co/XNNbQarsGj<br><img src='/temp/video/2023/w-Month-3/e-Day-21/whyyoutouzhele/1638121670601764867_0.jpg' width='450' height='500'><br><br>北京时间2023-03-21T18:18:21Z<br>网友讨论 https://t.co/9HJdsfFVBp<br><img src='/temp/image/2023/w-Month-3/1638122870168592384_0.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1638122870168592384_1.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1638122870168592384_2.jpg' width='450' height='500'><img src='/temp/image/2023/w-Month-3/1638122870168592384_3.jpg' width='450' height='500'><br><br>北京时间2023-03-21T19:50:07Z<br>@idzhang3 爆赞<br><br><br>北京时间2023-03-21T19:43:49Z<br>@jinping53 地球蛆头是这样的<br><br><br>
+李老师不是你老师 北京时间 2023-03-21T06:37:52Z 1637946587149221888<br>@Yokohahasan 恒，源，祥。<br><br><br>
