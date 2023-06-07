@@ -1,0 +1,1 @@
+李老师不是你老师 北京时间 2022-11-19T02:39:28Z 1593675269755256832<br>北工商一名同学外腹痛外出就医不被允许，拖到凌晨才出校，死在医院了 https://t.co/aGwkkByGZR<br><img src='/temp/image/2022/o-Month-11/1593675269755256832_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1593675269755256832_1.jpg' width='470' height='500'><br><br>
