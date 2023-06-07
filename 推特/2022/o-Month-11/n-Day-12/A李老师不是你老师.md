@@ -1,0 +1,2 @@
+李老师不是你老师 北京时间 2022-11-12T02:41:25Z 1591139046478479360<br>一位新疆推友讲述一件小时候摘棉花的往事
+我去查了一下居然还有政府的公告 https://t.co/WMW9UYv00N<br><img src='/temp/image/2022/o-Month-11/1591139046478479360_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1591139046478479360_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1591139046478479360_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1591139046478479360_3.jpg' width='470' height='500'><br><br>
