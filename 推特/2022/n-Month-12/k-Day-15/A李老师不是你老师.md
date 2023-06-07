@@ -1,1 +1,0 @@
-北京时间2022-12-15T22:22:51Z<br>网友补充，微博上有人称死者为一名大一新生，并非考研的学生。 https://t.co/svE6SrXz8M<br><img src='/temp/image/2022/n-Month-12/1603395165854498817_0.jpg' width='450' height='500'><br><br>

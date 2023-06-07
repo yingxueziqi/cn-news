@@ -1,2 +1,0 @@
-北京时间2022-12-16T19:26:20Z<br>河南宣布，即日起至明年三月，卫生健康系统将暂时取消节假日 https://t.co/RTb5Xm5THJ<br><img src='/temp/image/2022/n-Month-12/1603713131267559424_0.jpg' width='450' height='500'><br><br>北京时间2022-12-16T23:20:37Z<br>网友投稿
-从“阳过的不要”到“阳过的优先录用” https://t.co/m3TUqKM6cP<br><img src='/temp/image/2022/n-Month-12/1603772088938110976_0.jpg' width='450' height='500'><img src='/temp/image/2022/n-Month-12/1603772088938110976_1.jpg' width='450' height='500'><br><br>
