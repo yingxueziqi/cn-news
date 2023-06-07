@@ -1,4 +1,3 @@
-北京时间2022-11-09T20:33:07Z<br>今天挺多广东朋友给我发这张图的，说担心广州成为四月份的上海。
-其实说来有趣，当时很多清零派是拿深圳作为榜样的，说上海就不该“躺平”
-结果半年以后，没有选择躺平的广州亦来到了这个数据。
-我一再说，动态清零不可持续的根本原因恰恰不是为了什么“躺平”，而是因为奥密克戎根本防不住。 https://t.co/OjgYjhtdpB<br><img src='/temp/image/2022/o-Month-11/1590321587999629313_0.jpg' width='450' height='500'><br><br>北京时间2022-11-09T21:49:15Z<br>感觉甘肃今天上分有点猛 https://t.co/cx2H7jrN8E<br><img src='/temp/image/2022/o-Month-11/1590340746175209472_0.jpg' width='450' height='500'><br><br>
+李老师不是你老师 北京时间 2022-11-09T03:14:31Z 1590060212324421632<br>温州城管驱赶残疾人表演艺术团
+这位大姐说的太好了 https://t.co/MufR8HTn1j<br><img src='/temp/video/2022/o-Month-11/q-Day-09/whyyoutouzhele/1590060212324421632_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-09T01:57:34Z 1590040847751708672<br>新疆库尔勒，自己的爸爸进入当地隔离点后死亡。
+目前死因正在调查。 https://t.co/PR9giYltAT<br><img src='/temp/image/2022/o-Month-11/1590040847751708672_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1590040847751708672_3.jpg' width='450' height='500'><br><br>
