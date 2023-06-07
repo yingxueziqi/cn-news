@@ -1,0 +1,2 @@
+李老师不是你老师 北京时间 2022-11-23T05:43:57Z 1595171251483512846<br>凌晨五点 富士康2.0战况升级
+警方使用了催泪瓦斯，富士康工人使用灭火器🧯反击 https://t.co/3adcmvldQ1<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595171251483512846_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-23T06:36:16Z 1595184414010605569<br>最新消息，警察想要冲进来，工人把大门点燃，警察动用高压水枪灭火 https://t.co/jHSS9ixQNZ<br><img src='/temp/video/2022/o-Month-11/c-Day-23/whyyoutouzhele/1595184414010605569_0.jpg' width='470' height='500'><br><br>
