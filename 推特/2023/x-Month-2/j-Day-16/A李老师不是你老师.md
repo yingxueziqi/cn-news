@@ -1,5 +1,7 @@
-北京时间2023-02-16T19:29:09Z<br>2月16日上午，武汉中山公园依旧聚集了约两百名老人讨论医保改革问题。
-现场没有太多警察，也没有干涉。但是用水马封闭了一个地铁站出入口。
-随后民众自行散去。 https://t.co/McXc6cW3kX<br><img src='/temp/video/2023/x-Month-2/j-Day-16/whyyoutouzhele/1626181885138284544_0.jpg' width='450' height='500'><br><br>北京时间2023-02-16T19:09:58Z<br>网友投稿
-在美日荷限制向中国出口半导体，中国半导体协会呼吁全球半导体产业团结起来的视频下方
-八万多条评论展现了赛博版的道路以目： https://t.co/XWltDeI8bj<br><img src='/temp/video/2023/x-Month-2/j-Day-16/whyyoutouzhele/1626177061353127939_0.jpg' width='450' height='500'><br><br>北京时间2023-02-16T19:49:35Z<br>多名武汉网友投稿称，今天收到了湖北医保局的群发短信 https://t.co/yr1ZWgTJyM<br><img src='/temp/image/2023/x-Month-2/1626187030483853314_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626187030483853314_1.jpg' width='450' height='500'><br><br>北京时间2023-02-16T23:24:15Z<br>https://t.co/QYCSE35qYr<br><img src='/temp/image/2023/x-Month-2/1626241052913938437_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626241052913938437_1.jpg' width='450' height='500'><br><br>北京时间2023-02-16T18:39:10Z<br>北京也将房贷提高到95岁。 https://t.co/8aCtF0uPJ4<br><img src='/temp/image/2023/x-Month-2/1626169310216437760_0.jpg' width='450' height='500'><br><br>北京时间2023-02-16T18:22:06Z<br>后续进展：原因是发现了一个气球 https://t.co/f2GB5wpdMp<br><img src='/temp/image/2023/x-Month-2/1626165014217334784_0.jpg' width='450' height='500'><br><br>
+李老师不是你老师 北京时间 2023-02-16T07:50:12Z 1626005988753940480<br>https://t.co/DYH9mKWbJY<br><img src='/temp/image/2023/x-Month-2/1626005988753940480_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-16T00:50:21Z 1625900329660297227<br>@yigeyig03365725 @torontobigface 没有幽默感的人建议闭嘴<br><br><br>李老师不是你老师 北京时间 2023-02-16T00:46:59Z 1625899482809344001<br>@torontobigface 细心的网友肯定已经发现了
+很多爱国大V自己就在欧美日韩，再不济也是做翻译工作的。说明什么？这就是一支CIA组织的反串队伍，一方面宣扬民粹思想，一方面引导民众与世界脱钩
+企图从根上破坏一带一路和中华民族的伟大复兴
+这几年大家也都看见了，他们效果显著
+只是如今家乡出了事，让他们露出了狐狸尾巴<br><br><br>李老师不是你老师 北京时间 2023-02-16T00:30:23Z 1625895304892391426<br>社区群里对这件事的讨论 https://t.co/e8E0lknr5R<br><img src='/temp/image/2023/x-Month-2/1625895304892391426_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-16T00:29:20Z 1625895042161209345<br>网友投稿
+一位之前在网上反映过问题的武汉市民，在15日早上准备出门前被两个身份不明的男子拦住，限制其出行。
+两名男子没有出示证件，自称是社区安排的安保公司人员。 https://t.co/d8UvpMy8bm<br><img src='/temp/video/2023/x-Month-2/j-Day-16/whyyoutouzhele/1625895042161209345_0.jpg' width='480' height='500'><br><br>
