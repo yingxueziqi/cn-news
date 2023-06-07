@@ -1,1 +1,4 @@
-北京时间2022-11-14T19:05:26Z<br>北京现在依然需要24小时核酸，但是今天检测点被撤了许多，导致大家做核酸的时间更长了 https://t.co/AzUh1ARZnp<br><img src='/temp/image/2022/o-Month-11/1592111460666462209_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592111460666462209_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592111460666462209_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1592111460666462209_3.jpg' width='450' height='500'><br><br>
+李老师不是你老师 北京时间 2022-11-14T07:50:19Z 1591941561092571136<br>到今天，新疆封城已经100天了。
+你以为已经是极限了？
+不
+边境小城广西东兴封了9个月 https://t.co/W9RDwbm3An<br><img src='/temp/image/2022/o-Month-11/1591941561092571136_0.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591941561092571136_1.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591941561092571136_2.jpg' width='450' height='500'><img src='/temp/image/2022/o-Month-11/1591941561092571136_3.jpg' width='450' height='500'><br><br>
