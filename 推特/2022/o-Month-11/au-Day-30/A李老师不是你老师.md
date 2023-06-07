@@ -1,2 +1,10 @@
-李老师不是你老师 北京时间 2022-11-30T02:20:01Z 1597656642803273729<br>广州海珠区后滘 约29日晚上11点左右 发生群体事件
+李老师不是你老师 北京时间 2022-11-30T02:58:06Z 1597666227371278336<br>广州海珠区后滘 补充视频
+
+民众向警方投掷玻璃瓶 https://t.co/lRvmHBwUq5<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597666227371278336_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T00:01:49Z 1597621864414973953<br>目前在国内疯传的一个视频 视频1
+视频中显示一个负责人在给防疫人员开会
+负责人称
+拉一个人到方舱可以奖励3500元
+新建了很多方舱要住满。
+并称这个病现在就是小感冒 https://t.co/ZrYDNMQL6h<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597621864414973953_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T05:54:52Z 1597710711622619136<br>微博网友发布 11月30日晚凌晨4点的广州南站
+大量旅客滞留在车站周围 https://t.co/MqNcZycEQ0<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597710711622619136_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T02:20:01Z 1597656642803273729<br>广州海珠区后滘 约29日晚上11点左右 发生群体事件
 目前具体原因不详。 https://t.co/A9m0gKoVge<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597656642803273729_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T02:39:32Z 1597661555167965184<br>哈佛大学 https://t.co/lvcO5It9IQ<br><img src='/temp/image/2022/o-Month-11/1597661555167965184_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T04:31:10Z 1597689649039671296<br>一名微博网友拍摄的30日凌晨四点的广州出城车队 https://t.co/2a3qJM7RTB<br><img src='/temp/image/2022/o-Month-11/1597689649039671296_0.jpg' width='470' height='500'><br><br>
