@@ -1,0 +1,3 @@
+李老师不是你老师 北京时间 2022-11-21T00:38:03Z 1594369493756960769<br>网友投稿
+绵阳市三台县，因为三个女生校园暴力一个女生，愤怒的家长们今晚去公安局集会讨要说法 https://t.co/bR9yn0qUA3<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594369493756960769_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T04:27:02Z 1594427115918839812<br>网友投稿
+河北师大学生终于硬了点了 https://t.co/eNf3r7AbYm<br><img src='/temp/image/2022/o-Month-11/1594427115918839812_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594427115918839812_1.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T02:49:54Z 1594402673490477056<br>河北师范大学，学生们在宿舍里高喊“抗议” https://t.co/SB752Xl6rl<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594402673490477056_0.jpg' width='470' height='500'><br><br>
