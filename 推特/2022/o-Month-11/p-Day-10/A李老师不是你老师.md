@@ -1,0 +1,2 @@
+李老师不是你老师 北京时间 2022-11-10T03:24:42Z 1590425163602219008<br>网友投稿
+新疆一名肺癌晚期患者，得不到救治写下长信之后跳楼自杀了 https://t.co/7qCNV0qam2<br><img src='/temp/image/2022/o-Month-11/1590425163602219008_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1590425163602219008_1.jpg' width='470' height='500'><br><br>
