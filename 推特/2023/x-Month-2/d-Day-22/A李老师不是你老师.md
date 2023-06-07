@@ -1,1 +1,6 @@
-北京时间2023-02-22T21:58:31Z<br>@DictatorOfPRC @geleilaoshi 感谢，已关注<br><br><br>
+李老师不是你老师 北京时间 2023-02-22T00:40:59Z 1628072301416661000<br>网友投稿
+近日一张焦作市示范区安委会群内的聊天截图引发了大众关注
+图中，城改办主任郭某某疑似操作失误，将私人信息发送到了工作群里。在文中，除了偷情言论外，关于“两人联手就可以包揽全区工程”的言论更是令人膛目结舌。
+根据新京报消息，目前涉事两人已经被免职处理。 https://t.co/85er8I5qzc<br><img src='/temp/image/2023/x-Month-2/1628072301416661000_0.jpg' width='480' height='500'><img src='/temp/image/2023/x-Month-2/1628072301416661000_1.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-22T00:22:54Z 1628067750454124545<br>https://t.co/vybmNaVOPh<br><img src='/temp/video/2023/x-Month-2/d-Day-22/whyyoutouzhele/1628067750454124545_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-22T00:11:54Z 1628064983450898434<br>https://t.co/zYL6DWMMn2<br><img src='/temp/image/2023/x-Month-2/1628064983450898434_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-22T00:11:14Z 1628064812876849153<br>网友投稿
+2月21日上午，河南省周口市
+因“实地·九里香堤”楼盘发生烂尾，民众前往市委市政府门前进行抗议 https://t.co/1K3FHua3kZ<br><img src='/temp/video/2023/x-Month-2/d-Day-22/whyyoutouzhele/1628064812876849153_0.jpg' width='480' height='500'><br><br>
