@@ -1,1 +1,3 @@
-北京时间2023-02-17T15:46:32Z<br>https://t.co/LM4WGP2OVL<br><img src='/temp/image/2023/x-Month-2/1626488251526643718_0.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626488251526643718_1.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626488251526643718_2.jpg' width='450' height='500'><img src='/temp/image/2023/x-Month-2/1626488251526643718_3.jpg' width='450' height='500'><br><br>
+李老师不是你老师 北京时间 2023-02-17T00:50:06Z 1626262657060814848<br>16日白天，在大连青泥洼桥地铁站
+仍然有一部分民众在抗议医保改革，现场齐唱国际歌 https://t.co/bn31nYj5P7<br><img src='/temp/video/2023/x-Month-2/i-Day-17/whyyoutouzhele/1626262657060814848_0.jpg' width='480' height='500'><br><br>李老师不是你老师 北京时间 2023-02-17T00:44:06Z 1626261147719503876<br>@torontobigface 喷了，天天靠医保拿药看病，一分钱掰成两半花的老头老太太不懂医保改革，一群三四十岁，这辈子没进过几次医院，买过最接近处方的药是伟哥的爱国KOL懂什么是医保改革。
+疫情时候这帮人整天“老人小孩怎么办”，现在老人真有问题了，跟你科普起文字游戏了<br><br><br>
