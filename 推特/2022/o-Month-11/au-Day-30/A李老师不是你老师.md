@@ -1,4 +1,4 @@
-李老师不是你老师 北京时间 2022-11-30T02:58:06Z 1597666227371278336<br>广州海珠区后滘 补充视频
+李老师不是你老师 北京时间 2022-11-30T00:30:07Z 1597628986062176256<br>网传郑州部分社区有招募动员10到13岁孩子去做抗疫小少年，小小志愿者 https://t.co/lRKRaw1nf3<br><img src='/temp/image/2022/o-Month-11/1597628986062176256_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1597628986062176256_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1597628986062176256_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1597628986062176256_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T02:30:15Z 1597659220572508161<br>德国 杜塞尔多夫 https://t.co/HruvCqSjLG<br><img src='/temp/image/2022/o-Month-11/1597659220572508161_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T02:58:06Z 1597666227371278336<br>广州海珠区后滘 补充视频
 
 民众向警方投掷玻璃瓶 https://t.co/lRvmHBwUq5<br><img src='/temp/video/2022/o-Month-11/au-Day-30/whyyoutouzhele/1597666227371278336_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-30T00:01:49Z 1597621864414973953<br>目前在国内疯传的一个视频 视频1
 视频中显示一个负责人在给防疫人员开会
