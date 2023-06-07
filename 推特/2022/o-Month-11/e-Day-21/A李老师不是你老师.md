@@ -1,4 +1,15 @@
-李老师不是你老师 北京时间 2022-11-21T01:22:23Z 1594380648248213506<br>只能说老钟人可能不懂病毒，但是肯定懂中国 https://t.co/d0XuJx3okN<br><img src='/temp/image/2022/o-Month-11/1594380648248213506_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594380648248213506_1.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T05:46:56Z 1594447226096742400<br>粉红暴论：现在大家因为疫情这么痛苦，就是因为大家都在体制外。
+李老师不是你老师 北京时间 2022-11-21T19:26:39Z 1594653513157677056<br>网友投稿
+广州，外国人给露宿街头的人送吃的
+网友：境外势力开始办事了 https://t.co/AqaRhqrSYP<br><img src='/temp/image/2022/o-Month-11/1594653513157677056_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594653513157677056_1.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T19:56:32Z 1594661035851796480<br>“你看那个人，好像一条狗啊”
+
+一名男子因外出而被警察逮捕，期间遭遇了令人愤慨的羞辱。
+在男子完全配合的情况下，警察不断要求该男子变更姿势和位置配合检查，强制把他的双腿分开直至无法站立，然后再将他按在地上，并用膝盖顶住男子的脖子让其无法呼吸
+并问他你为什么出来
+男子艰难地回答“我在吃药.. https://t.co/U1jpFvfWEb<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594661035851796480_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T20:51:40Z 1594674909564882944<br>网友投稿
+郑州开始用土封路 https://t.co/36ZEfMhah1<br><img src='/temp/image/2022/o-Month-11/1594674909564882944_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594674909564882944_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594674909564882944_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594674909564882944_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T08:53:53Z 1594494273394720769<br>网友投稿
+河北工程学院，从前天晚上开始，学生们就被迫被学校赶出来了（要求请病假）
+很多同学没有住处，都住在ATM机里，和高铁站下面。
+靠邯郸市民自发救助，学校没有一点表示 https://t.co/6fR6kzWaLi<br><img src='/temp/video/2022/o-Month-11/e-Day-21/whyyoutouzhele/1594494273394720769_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594494273394720769_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T01:22:23Z 1594380648248213506<br>只能说老钟人可能不懂病毒，但是肯定懂中国 https://t.co/d0XuJx3okN<br><img src='/temp/image/2022/o-Month-11/1594380648248213506_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594380648248213506_1.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T05:46:56Z 1594447226096742400<br>粉红暴论：现在大家因为疫情这么痛苦，就是因为大家都在体制外。
 如果大家都在体制内，不愁吃喝，一隔离连班都不用上了，更舒服了😅
 这人是土里蹦出来的吧，爹妈没经历过那个时代？ https://t.co/Z6kQXsJDi7<br><img src='/temp/image/2022/o-Month-11/1594447226096742400_0.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T01:33:55Z 1594383551415418882<br>网友投稿
 长安大学，因为先给女生送水吵起来了 https://t.co/5CUQBg0Vv5<br><img src='/temp/image/2022/o-Month-11/1594383551415418882_0.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_1.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_2.jpg' width='470' height='500'><img src='/temp/image/2022/o-Month-11/1594383551415418882_3.jpg' width='470' height='500'><br><br>李老师不是你老师 北京时间 2022-11-21T00:07:02Z 1594361684856131586<br>石家庄“七日维新”宣告失败
